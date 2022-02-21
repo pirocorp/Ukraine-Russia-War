@@ -51,4 +51,5 @@ The decrees on recognizing the Donetsk and Luhansk People’s Republics order th
 ![image](https://user-images.githubusercontent.com/34960418/155029424-ac3011ba-4a67-4881-a5f7-7c4bfaaffecd.png)
 ![image](https://user-images.githubusercontent.com/34960418/155029461-d8f486d7-0c7f-4701-8871-3f92f6797688.png)
 
+![image](https://user-images.githubusercontent.com/34960418/155030314-4b72f4a8-96e9-4e5a-87d0-6f2b0510969b.png)
 
