@@ -25,3 +25,10 @@ B52 + Air tanker above Poland plus US Hawk Drone above Ukraine.
 Fake Incursian in Russia
 
 https://twitter.com/i/status/1495765118969421824
+
+
+Forward NATO base in Poland
+
+![image](https://user-images.githubusercontent.com/34960418/155025466-b3f7cce1-6ad6-47c2-a1f3-20acc56cfbb2.png)
+
+
