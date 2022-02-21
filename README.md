@@ -31,4 +31,13 @@ Forward NATO base in Poland
 
 ![image](https://user-images.githubusercontent.com/34960418/155025466-b3f7cce1-6ad6-47c2-a1f3-20acc56cfbb2.png)
 
+21.02.2022:22:32
+
+- USAF E8C Joint STARS REDEYE6 en route to #Ukraine 
+- 2x US Army RC-12X Guardrail YANK1/02 orbiting over #Lithuania 
+- US Army Cl600 ARTEMIS BRIO68 orbiting near #Belarus 
+- USAF RQ4 Global Hawk FORTE11 active over Ukraine
+- Helenic Air Force  EMB-145H AEW&C HAF380 #Bulgaria
+
+![image](https://user-images.githubusercontent.com/34960418/155028545-10906dbe-1aeb-4803-a073-268016e0d93e.png)
 
