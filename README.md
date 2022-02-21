@@ -58,3 +58,8 @@ The decrees on recognizing the Donetsk and Luhansk People’s Republics order th
 
 Invasion forces 
 ![image](https://user-images.githubusercontent.com/34960418/155034364-450d1c0a-88fb-4c1b-b0b3-2d4a55c256ef.png)
+
+22.02.2022:00:00 
+Tupolev Tu-154M, Russian Navy landing at Yeysk. Mariupol is directly across the sea. 
+![image](https://user-images.githubusercontent.com/34960418/155035690-862febdc-1c5c-4117-be4d-8ebe17d860d9.png)
+
