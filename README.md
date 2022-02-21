@@ -21,3 +21,7 @@ Satellite imagery shows Russian ground forces dispersing to positions close to t
 B52 + Air tanker above Poland plus US Hawk Drone above Ukraine.
 
 ![image](https://user-images.githubusercontent.com/34960418/154960169-7dc34f96-fd0e-4b5f-ac1f-08485a6a8258.png)
+
+Fake Incursian in Russia
+
+https://twitter.com/i/status/1495765118969421824
