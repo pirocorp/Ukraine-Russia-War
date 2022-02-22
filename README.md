@@ -64,9 +64,5 @@ Tupolev Tu-154M, Russian Navy landing at Yeysk. Mariupol is directly across the 
 ![image](https://user-images.githubusercontent.com/34960418/155035690-862febdc-1c5c-4117-be4d-8ebe17d860d9.png)
 
 
-22:02:2022:01:00
-A lot of Russian planes are lighting up on flightradar24, they could be going airborne here within the hour. 
-![image](https://user-images.githubusercontent.com/34960418/155040559-ce3f0fe7-abda-485b-a395-74dc2936c686.png)
-![image](https://user-images.githubusercontent.com/34960418/155040576-41c1559b-6718-4202-959d-fb5d9913595f.png)
-![image](https://user-images.githubusercontent.com/34960418/155040606-6b19379b-9fbe-4c19-816f-d56fc4712096.png)
+
 
