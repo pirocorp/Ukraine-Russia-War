@@ -84,3 +84,16 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 ![image](https://user-images.githubusercontent.com/34960418/155145053-9f7ba740-d4ec-4c64-9a94-7e34ca4e938a.png)
 
 
+Источник рассказал,что обозначают тактические знаки на российской военной технике.:
+
+Z - харьковское направление
+🔺 Славянск ,Краматорск
+🔵 мобильный резерв
+
+![image](https://user-images.githubusercontent.com/34960418/155215311-44140134-7cdb-4073-bf3b-c14bd0a844b5.png)
+![image](https://user-images.githubusercontent.com/34960418/155215349-3595ca09-ea01-4a10-b14d-7e81d3f7f797.png)
+![image](https://user-images.githubusercontent.com/34960418/155215373-28e57808-2c00-44be-a65f-18e53a8947fd.png)
+![image](https://user-images.githubusercontent.com/34960418/155215395-cb4fd10e-88fb-416a-a46b-f34af0d93922.png)
+
+
+
