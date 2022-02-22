@@ -74,3 +74,13 @@ I fear that we will soon hear more about the small cities of Ovruch, Korosten, M
 22:02:2022:12:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155120345-87a85973-de56-41eb-a387-94f597973901.png)
+
+
+22:02:2022:15:00
+
+Russian messaging over whether DNR/LNR recognised in current or “desired” borders has been all over the place today. Maybe strategic ambiguity, maybe Putin just didn’t tell anyone else yet what he plans. 
+
+![image](https://user-images.githubusercontent.com/34960418/155144889-e870cb58-95b8-460a-b12a-5a41fdf5fa77.png)
+![image](https://user-images.githubusercontent.com/34960418/155145053-9f7ba740-d4ec-4c64-9a94-7e34ca4e938a.png)
+
+
