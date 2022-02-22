@@ -99,3 +99,10 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 
 
 
+BM-21 "Grad" is working on the positions of the Armed Forces of Ukraine in the Komishuvakhi area (Luhansk region).
+
+
+https://user-images.githubusercontent.com/34960418/155217304-44d030d0-1f60-4e38-bf80-4f92622c99cf.mp4
+
+
+
