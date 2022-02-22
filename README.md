@@ -64,5 +64,8 @@ Tupolev Tu-154M, Russian Navy landing at Yeysk. Mariupol is directly across the 
 ![image](https://user-images.githubusercontent.com/34960418/155035690-862febdc-1c5c-4117-be4d-8ebe17d860d9.png)
 
 
+22:02:2022:01:40
 
+Heavy fighting around Kuznychi
+![image](https://user-images.githubusercontent.com/34960418/155042883-78ff957b-0119-4161-9687-b619e9550159.png)
 
