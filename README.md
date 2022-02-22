@@ -98,6 +98,11 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 ![image](https://user-images.githubusercontent.com/34960418/155215395-cb4fd10e-88fb-416a-a46b-f34af0d93922.png)
 
 
+22:02:2022:22:40
+
+NATO Global Hawk UAV
+
+![image](https://user-images.githubusercontent.com/34960418/155224900-7fb6c974-b5a9-45c0-a88f-17e3dd0807d0.png)
 
 
 
