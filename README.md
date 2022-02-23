@@ -64,19 +64,19 @@ Tupolev Tu-154M, Russian Navy landing at Yeysk. Mariupol is directly across the 
 ![image](https://user-images.githubusercontent.com/34960418/155035690-862febdc-1c5c-4117-be4d-8ebe17d860d9.png)
 
 
-22:02:2022:01:40
+22.02.2022:01:40
 
 I fear that we will soon hear more about the small cities of Ovruch, Korosten, Malyn, Ivankiv and Chernihiv in #Ukraine. As key railway / road junctions near #Kyiv, they are bound to be in harm's way of Russia's 35th, 36th and 41st Combined Arms Armies (CAAs), based in Belarus.
 
 ![image](https://user-images.githubusercontent.com/34960418/155044070-8a39eb95-23c3-4415-b6da-691725b52ead.png)
 
 
-22:02:2022:12:00
+22.02.2022:12:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155120345-87a85973-de56-41eb-a387-94f597973901.png)
 
 
-22:02:2022:15:00
+22.02.2022:15:00
 
 Russian messaging over whether DNR/LNR recognised in current or “desired” borders has been all over the place today. Maybe strategic ambiguity, maybe Putin just didn’t tell anyone else yet what he plans. 
 
@@ -84,7 +84,7 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 ![image](https://user-images.githubusercontent.com/34960418/155145053-9f7ba740-d4ec-4c64-9a94-7e34ca4e938a.png)
 
 
-22:02:2022:21:40
+22.02.2022:21:40
 
 Источник рассказал,что обозначают тактические знаки на российской военной технике.:
 
@@ -98,7 +98,7 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 ![image](https://user-images.githubusercontent.com/34960418/155215395-cb4fd10e-88fb-416a-a46b-f34af0d93922.png)
 
 
-22:02:2022:22:40
+22.02.2022:22:40
 
 NATO Global Hawk UAV
 
@@ -108,7 +108,7 @@ NATO Global Hawk UAV
 
 
 
-23:02:2022:15:00
+23.02.2022:15:00
 
 «Welcome to hell»
 «Добро пожаловать в ад, вы здесь умрете как паршивые псы. Русских солдат не ждут в Украине! Здесь вас ждут не с цветами, а с Javelin. Если вы придете в Украину, вы отсюда никогда не выйдете!», - народный депутат Украины от «Евросолидарности» Алексей Гончаренко красноречиво объяснил, почему в Украине не ждут российских солдат.
@@ -116,7 +116,7 @@ NATO Global Hawk UAV
 https://user-images.githubusercontent.com/34960418/155382012-4f4a8e99-ba60-436e-9588-c7c2cad98ce7.mp4
 
 
-23:02:2022:20:00
+23.02.2022:20:00
 
 It looks like Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine (🇺🇦) in Belarus (🇧🇾). The Belarusian Air Force doesn’t use Su-24’s, but the Ukrainians do. Will this aircraft be used for a fake news story about an attack? 
 
@@ -127,3 +127,6 @@ Meanwhile in Russia: the national standard for "Urgent burial of corpses in peac
 
 ![image](https://user-images.githubusercontent.com/34960418/155390059-1c8a860b-5ad4-4677-bee8-8e8412ef1875.png)
 
+23.02.2022:21:00
+
+![image](https://user-images.githubusercontent.com/34960418/155396678-3f54128a-cb0b-4cdd-a0fb-3710d613d0a7.png)
