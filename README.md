@@ -151,4 +151,6 @@ https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-
 Russia has closed the airspace along the northeast Ukrainian border for civil aviation according to NOTAM (Notice to Airmen).
 
 ![image](https://user-images.githubusercontent.com/34960418/155424876-8adf521f-331d-4400-8f78-fd2aa5e4539b.png)
+![image](https://user-images.githubusercontent.com/34960418/155425488-93434dd8-0586-48a6-9bb1-ab9da85fc5ae.png)
+
 
