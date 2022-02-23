@@ -121,5 +121,7 @@ https://user-images.githubusercontent.com/34960418/155382012-4f4a8e99-ba60-436e-
 It looks like Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine (🇺🇦) in Belarus (🇧🇾). The Belarusian Air Force doesn’t use Su-24’s, but the Ukrainians do. Will this aircraft be used for a fake news story about an attack? 
 
 ![image](https://user-images.githubusercontent.com/34960418/155387241-c2994297-de2b-4c63-be79-fff7c76b87e8.png)
+![image](https://user-images.githubusercontent.com/34960418/155387486-24ba9506-8d77-4779-8298-f75482f3d7e4.png)
+
 
 
