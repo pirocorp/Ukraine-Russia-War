@@ -116,3 +116,10 @@ NATO Global Hawk UAV
 https://user-images.githubusercontent.com/34960418/155382012-4f4a8e99-ba60-436e-9588-c7c2cad98ce7.mp4
 
 
+23:02:2022:20:00
+
+It looks like Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine (🇺🇦) in Belarus (🇧🇾). The Belarusian Air Force doesn’t use Su-24’s, but the Ukrainians do. Will this aircraft be used for a fake news story about an attack? 
+
+![image](https://user-images.githubusercontent.com/34960418/155387241-c2994297-de2b-4c63-be79-fff7c76b87e8.png)
+
+
