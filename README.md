@@ -146,5 +146,9 @@ https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-
 
 ![image](https://user-images.githubusercontent.com/34960418/155421844-de408f1d-dd68-41a4-8bdb-b7a68972a0c2.png)
 
+24.02.2022:00:00
 
+Russia has closed the airspace along the northeast Ukrainian border for civil aviation according to NOTAM (Notice to Airmen).
+
+![image](https://user-images.githubusercontent.com/34960418/155424876-8adf521f-331d-4400-8f78-fd2aa5e4539b.png)
 
