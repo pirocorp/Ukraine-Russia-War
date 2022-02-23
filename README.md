@@ -130,3 +130,11 @@ Meanwhile in Russia: the national standard for "Urgent burial of corpses in peac
 23.02.2022:21:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155396678-3f54128a-cb0b-4cdd-a0fb-3710d613d0a7.png)
+
+
+23.02.2022:23:16
+
+Possiale location of invading Russian forces
+
+![image](https://user-images.githubusercontent.com/34960418/155418413-ff2702f9-6fd5-486b-9f7a-a2e1339317f2.png)
+
