@@ -123,7 +123,7 @@ It looks like Russian troops are transporting an old Su-24 aircraft towards the 
 ![image](https://user-images.githubusercontent.com/34960418/155388586-394091e4-205d-4212-a377-3dcc0f586cd8.png)
 
 
-Meanwhile in Russia: the national standard for "Urgent burial of corpses in peacetime and wartime" is reportedly being introduced by the government.
+Meanwhile in Russia: the national standard for "Urgent burial of corpses in peacetime and wartime" is reportedly being introduced by the government. [Mass Graves.](https://en.newizv.ru/article/general/13-12-2021/grave-in-law-state-adopts-national-standard-for-mass-graves?fbclid=IwAR3hC23laheVX16evjBbaw1q0msJF25oxEFU_bk8btW1f2VsZlhebHNpSHQ)
 
 ![image](https://user-images.githubusercontent.com/34960418/155390059-1c8a860b-5ad4-4677-bee8-8e8412ef1875.png)
-https://en.newizv.ru/article/general/13-12-2021/grave-in-law-state-adopts-national-standard-for-mass-graves?fbclid=IwAR3hC23laheVX16evjBbaw1q0msJF25oxEFU_bk8btW1f2VsZlhebHNpSHQ
+
