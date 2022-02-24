@@ -183,17 +183,17 @@ The Ukrainian army says the situation is "difficult". Understatement of the year
 ![image](https://user-images.githubusercontent.com/34960418/155512113-a1e0b268-4ec3-4611-9048-2434c0f43b44.png)
 
 
-Как сбили русский самолёт
+## Как сбили русский самолёт
 
 https://user-images.githubusercontent.com/34960418/155513998-791539d7-00a1-433b-9e6c-46754f4da7f9.mp4
 
 
-stinger-ите жилели. 
+## stinger-ите жилели. 
 
 ![image](https://user-images.githubusercontent.com/34960418/155518636-1b034002-473d-4ef8-a84b-66b2a04054bc.png)
 
 
-Харков T80 среща NLAW
+## Харков T80 среща NLAW
 
 https://user-images.githubusercontent.com/34960418/155519587-195bb67a-b72d-4fbf-a47b-030870fd6d76.mp4
 
@@ -202,7 +202,7 @@ https://user-images.githubusercontent.com/34960418/155519587-195bb67a-b72d-4fbf-
 
 ![image](https://user-images.githubusercontent.com/34960418/155532229-a4130fd5-933a-43b0-8388-c46b00d36a28.png)
 
-Пленена техника и свинеруси
+## Пленена техника и свинеруси
 
 KA-52 taken down by a stinger near Gostomel
 
@@ -211,23 +211,23 @@ https://user-images.githubusercontent.com/34960418/155519904-e8acea55-fab2-41f3-
 ![image](https://user-images.githubusercontent.com/34960418/155520580-dd5ab795-d4b3-4cdb-a8f4-214db0f0cf74.png)
 
 
-Киев dogfight 
+## Киев dogfight 
 
 https://user-images.githubusercontent.com/34960418/155521309-ba0c8285-61db-4272-8b96-787605512b00.mp4
 
-Sukhoi
+## Sukhoi
 
 https://user-images.githubusercontent.com/34960418/155524780-9adc3b69-b89c-4d0b-b2e3-0ef8c286d1d5.mp4
 
 
-Киев
+## Киев
 
 https://user-images.githubusercontent.com/34960418/155543198-7e61efef-55dd-4331-bd31-d03d1d2427e3.mp4
 
 https://user-images.githubusercontent.com/34960418/155542930-4fc937d4-4a4b-4d03-8648-4c6eef83cd56.mp4
 
 
-Вышгорода 
+## Вышгорода 
 
 ![image](https://user-images.githubusercontent.com/34960418/155527090-09de4ea8-133d-4938-951e-2222a7af0951.png)
 
@@ -237,21 +237,17 @@ https://user-images.githubusercontent.com/34960418/155529565-dc8c130b-8792-4f63-
 https://user-images.githubusercontent.com/34960418/155527419-fb30ec15-9494-4288-8aad-5b43146ff1ea.MP4
 
 
-Путивъл  
+## Путивъл  
 
 https://user-images.githubusercontent.com/34960418/155544744-710e7afd-e5de-4fae-9510-fefefcdf489b.mp4
 
 
 
-
-
-24.02.2022:13:00
+# 24.02.2022:13:00
 
 Actual situation
+
 ![image](https://user-images.githubusercontent.com/34960418/155521609-1897f6a6-b1c4-4695-9923-2cc676bd0813.png)
-
-
-
 
 
 Russian Air Force An-26 RF-36074 / 19 BLUE
@@ -263,21 +259,21 @@ https://user-images.githubusercontent.com/34960418/155547762-f1e076a4-d2f2-40f8-
 
 
 
-24.02.2022:16:00
+# 24.02.2022:16:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155549585-f85749b0-b6b5-4bc2-aefd-2451602d2237.png)
 
 
-24.02.2022:17:00
+# 24.02.2022:17:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155568671-c0479901-e819-4082-b29c-7a8faac73bd8.png)
 
-Сновск
+## Сновск
 
 https://user-images.githubusercontent.com/34960418/155585036-994e82cf-b483-4c81-9e1e-b09dfdb4c28a.mp4
 
 
-Сум
+## Сум
 
 https://user-images.githubusercontent.com/34960418/155587781-4e4bd9d2-e924-4f56-a104-0a9d2fd3c0f7.mp4
 
