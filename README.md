@@ -177,3 +177,10 @@ The Ukrainian army says the situation is "difficult". Understatement of the year
 
 ![image](https://user-images.githubusercontent.com/34960418/155512113-a1e0b268-4ec3-4611-9048-2434c0f43b44.png)
 
+
+
+
+Как сбили русский самолёт
+
+https://user-images.githubusercontent.com/34960418/155513998-791539d7-00a1-433b-9e6c-46754f4da7f9.mp4
+
