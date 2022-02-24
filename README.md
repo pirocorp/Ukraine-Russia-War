@@ -282,7 +282,7 @@ https://user-images.githubusercontent.com/34960418/155585036-994e82cf-b483-4c81-
 https://user-images.githubusercontent.com/34960418/155587781-4e4bd9d2-e924-4f56-a104-0a9d2fd3c0f7.mp4
 
 
-24.02.2022:19:00 Russian forces in belgorod
+24.02.2022:19:00 Russian forces in Belgorod
 
 ![image](https://user-images.githubusercontent.com/34960418/155585745-8e6b0089-8502-4fd7-b642-6644d021fe54.png)
 ![image](https://user-images.githubusercontent.com/34960418/155585770-560a3537-d02b-4ca6-b4a0-daa1591d8a0a.png)
