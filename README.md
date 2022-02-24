@@ -169,3 +169,11 @@ https://user-images.githubusercontent.com/34960418/155473808-b66159ac-9ebd-4aae-
 
 https://user-images.githubusercontent.com/34960418/155474782-e9d6b4b9-7bc5-47cd-b2ca-b99a0bbd1554.MP4
 
+
+## Kherson
+
+The Ukrainian front in Kherson totally collapsed. Russian troops reached the Dnepr and do not face any resistance. I geolocated them 130 km inside Ukraine.
+The Ukrainian army says the situation is "difficult". Understatement of the year. This is unbelievable.
+
+![image](https://user-images.githubusercontent.com/34960418/155512113-a1e0b268-4ec3-4611-9048-2434c0f43b44.png)
+
