@@ -184,3 +184,8 @@ The Ukrainian army says the situation is "difficult". Understatement of the year
 
 https://user-images.githubusercontent.com/34960418/155513998-791539d7-00a1-433b-9e6c-46754f4da7f9.mp4
 
+
+
+stinger-ите жилели. 
+
+![image](https://user-images.githubusercontent.com/34960418/155518636-1b034002-473d-4ef8-a84b-66b2a04054bc.png)
