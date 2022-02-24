@@ -178,14 +178,22 @@ The Ukrainian army says the situation is "difficult". Understatement of the year
 ![image](https://user-images.githubusercontent.com/34960418/155512113-a1e0b268-4ec3-4611-9048-2434c0f43b44.png)
 
 
-
-
 Как сбили русский самолёт
 
 https://user-images.githubusercontent.com/34960418/155513998-791539d7-00a1-433b-9e6c-46754f4da7f9.mp4
 
 
-
 stinger-ите жилели. 
 
 ![image](https://user-images.githubusercontent.com/34960418/155518636-1b034002-473d-4ef8-a84b-66b2a04054bc.png)
+
+
+Харков T80 среща NLAW
+
+https://user-images.githubusercontent.com/34960418/155519587-195bb67a-b72d-4fbf-a47b-030870fd6d76.mp4
+
+
+KA-52 taken down by a stinger near Gostomel
+
+https://user-images.githubusercontent.com/34960418/155519904-e8acea55-fab2-41f3-8fe6-ac98650f3f6f.mp4
+
