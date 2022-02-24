@@ -271,3 +271,8 @@ https://user-images.githubusercontent.com/34960418/155547762-f1e076a4-d2f2-40f8-
 24.02.2022:17:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155568671-c0479901-e819-4082-b29c-7a8faac73bd8.png)
+
+Сновск
+
+https://user-images.githubusercontent.com/34960418/155585036-994e82cf-b483-4c81-9e1e-b09dfdb4c28a.mp4
+
