@@ -197,3 +197,6 @@ KA-52 taken down by a stinger near Gostomel
 
 https://user-images.githubusercontent.com/34960418/155519904-e8acea55-fab2-41f3-8fe6-ac98650f3f6f.mp4
 
+![image](https://user-images.githubusercontent.com/34960418/155520580-dd5ab795-d4b3-4cdb-a8f4-214db0f0cf74.png)
+
+
