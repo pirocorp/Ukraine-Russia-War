@@ -259,6 +259,7 @@ Russian Air Force An-26 RF-36074 / 19 BLUE
 ![image](https://user-images.githubusercontent.com/34960418/155547048-d2cd9429-bb8a-4091-8885-35e006290ec0.png)
 ![image](https://user-images.githubusercontent.com/34960418/155547086-2f3a5b95-bf59-4651-a552-1951d7999e4a.png)
 
+https://user-images.githubusercontent.com/34960418/155547762-f1e076a4-d2f2-40f8-8e3f-6f4996982451.MP4
 
 
 
