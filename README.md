@@ -205,3 +205,7 @@ https://user-images.githubusercontent.com/34960418/155519904-e8acea55-fab2-41f3-
 https://user-images.githubusercontent.com/34960418/155521309-ba0c8285-61db-4272-8b96-787605512b00.mp4
 
 
+24.02.2022:13:00
+
+Actual situation
+![image](https://user-images.githubusercontent.com/34960418/155521609-1897f6a6-b1c4-4695-9923-2cc676bd0813.png)
