@@ -160,7 +160,5 @@ Volleys "GRAD" in the country to Mariupol
 
 https://user-images.githubusercontent.com/34960418/155469949-c728bb69-a962-4b38-b73d-58fce00a2b04.MP4
 
-Javelin meeting Sukhoi 
-
-https://user-images.githubusercontent.com/34960418/155470949-1d937b84-8a47-4ca0-9ccd-dc98cca4181a.mp4
+https://user-images.githubusercontent.com/34960418/155472291-97a48ccd-5ae1-42d2-9a49-9225358c0f51.MP4
 
