@@ -154,3 +154,9 @@ Russia has closed the airspace along the northeast Ukrainian border for civil av
 ![image](https://user-images.githubusercontent.com/34960418/155425488-93434dd8-0586-48a6-9bb1-ab9da85fc5ae.png)
 
 
+24.02.2022:07:00
+
+Залпы "ГРАД" в сторону города Мариуполь
+
+https://user-images.githubusercontent.com/34960418/155469949-c728bb69-a962-4b38-b73d-58fce00a2b04.MP4
+
