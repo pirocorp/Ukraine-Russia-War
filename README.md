@@ -198,6 +198,12 @@ stinger-ите жилели.
 https://user-images.githubusercontent.com/34960418/155519587-195bb67a-b72d-4fbf-a47b-030870fd6d76.mp4
 
 
+![image](https://user-images.githubusercontent.com/34960418/155532208-51acf0de-dc5e-468d-b277-e29400c870d7.png)
+
+![image](https://user-images.githubusercontent.com/34960418/155532229-a4130fd5-933a-43b0-8388-c46b00d36a28.png)
+
+Пленена техника и свинеруси
+
 KA-52 taken down by a stinger near Gostomel
 
 https://user-images.githubusercontent.com/34960418/155519904-e8acea55-fab2-41f3-8fe6-ac98650f3f6f.mp4
@@ -229,12 +235,6 @@ https://user-images.githubusercontent.com/34960418/155527419-fb30ec15-9494-4288-
 
 Actual situation
 ![image](https://user-images.githubusercontent.com/34960418/155521609-1897f6a6-b1c4-4695-9923-2cc676bd0813.png)
-
-
-
-
-
-
 
 
 
