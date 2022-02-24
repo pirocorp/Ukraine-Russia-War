@@ -156,7 +156,7 @@ Russia has closed the airspace along the northeast Ukrainian border for civil av
 
 24.02.2022:07:00
 
-Залпы "ГРАД" в сторону города Мариуполь
+Volleys "GRAD" in the country to Mariupol
 
 https://user-images.githubusercontent.com/34960418/155469949-c728bb69-a962-4b38-b73d-58fce00a2b04.MP4
 
