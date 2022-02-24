@@ -293,6 +293,8 @@ air defense system of Russian forces was also destroyed by the Ukrainian Army.
 
 ## Okhtarya 
 
+https://user-images.githubusercontent.com/34960418/155602958-6affacae-7fcb-4495-b27d-7bb67c356e70.mp4
+
 https://user-images.githubusercontent.com/34960418/155590665-a9186b26-c877-49fb-8176-d5d925fe8895.mp4
 
 
