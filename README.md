@@ -295,6 +295,11 @@ air defense system of Russian forces was also destroyed by the Ukrainian Army.
 
 https://user-images.githubusercontent.com/34960418/155602958-6affacae-7fcb-4495-b27d-7bb67c356e70.mp4
 
+# 25.02.2022:02:00
+
+![image](https://user-images.githubusercontent.com/34960418/155695490-09be3278-c09d-4b71-a1ac-ba7968a2fbf1.png)
+
+
 
 # 25.02.2022:9:00
 
@@ -337,4 +342,6 @@ https://user-images.githubusercontent.com/34960418/155687969-6f1efdda-5efc-451a-
 https://user-images.githubusercontent.com/34960418/155690220-cf20f16c-d8c9-4332-b9d4-9af4a068d272.mp4
 
 https://user-images.githubusercontent.com/34960418/155690477-e9bf2b34-6291-4d8e-b135-b30450b59147.mp4
+
+
 
