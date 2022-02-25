@@ -405,6 +405,12 @@ https://user-images.githubusercontent.com/34960418/155719867-c42fa4ec-c228-4e55-
 
 
 
+# 25.02.2022:14:30
+
+![image](https://user-images.githubusercontent.com/34960418/155724980-e4e4659f-aa88-45f3-8d44-740a70cd6e59.png)
+
+
+
 # War Crimes
 
 Руснаци преказват цивилни с танкове
