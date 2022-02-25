@@ -379,9 +379,15 @@ https://user-images.githubusercontent.com/34960418/155690477-e9bf2b34-6291-4d8e-
 
 # 25.02.2022:12:00
 
-Kiev
+## Kiev
 
 ![image](https://user-images.githubusercontent.com/34960418/155704489-c7795921-1bcf-47d7-8020-1990130f6405.png)
+
+
+## Herson
+
+![image](https://user-images.githubusercontent.com/34960418/155714384-0f183cef-4f01-477c-b606-0d1285ae82f8.png)
+
 
 
 
