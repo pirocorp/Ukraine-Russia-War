@@ -296,3 +296,12 @@ air defense system of Russian forces was also destroyed by the Ukrainian Army.
 https://user-images.githubusercontent.com/34960418/155602958-6affacae-7fcb-4495-b27d-7bb67c356e70.mp4
 
 
+# 25.02.2022:9:00
+
+## Kherson
+
+Russian convoy destroyed near Kherson
+
+
+https://user-images.githubusercontent.com/34960418/155685575-6de986a6-bfb7-493c-8371-71e9f67d988b.mp4
+
