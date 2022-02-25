@@ -322,6 +322,8 @@ https://user-images.githubusercontent.com/34960418/155687756-e8466e35-e980-4d40-
 
 Ukrainian troops hit a military airfield in Millerovo in the Rostov region
 
+![image](https://user-images.githubusercontent.com/34960418/155688582-b8ce5107-95c0-4f87-a081-490ade1b7449.png)
+
 
 https://user-images.githubusercontent.com/34960418/155687969-6f1efdda-5efc-451a-b707-420142e3171b.mp4
 
