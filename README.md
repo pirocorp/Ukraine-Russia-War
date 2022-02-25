@@ -302,6 +302,5 @@ https://user-images.githubusercontent.com/34960418/155602958-6affacae-7fcb-4495-
 
 Russian convoy destroyed near Kherson
 
-
 https://user-images.githubusercontent.com/34960418/155685575-6de986a6-bfb7-493c-8371-71e9f67d988b.mp4
 
