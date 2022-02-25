@@ -346,3 +346,9 @@ https://user-images.githubusercontent.com/34960418/155690220-cf20f16c-d8c9-4332-
 https://user-images.githubusercontent.com/34960418/155690477-e9bf2b34-6291-4d8e-b135-b30450b59147.mp4
 
 
+# How to make MOLOTOV
+
+![image](https://user-images.githubusercontent.com/34960418/155696256-9d3ef9e0-95f0-4757-b509-b289668506a7.png)
+
+![image](https://user-images.githubusercontent.com/34960418/155696289-91b069c7-3bcd-4ab7-8239-ab270f989ca5.png)
+
