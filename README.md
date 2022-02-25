@@ -321,6 +321,10 @@ https://user-images.githubusercontent.com/34960418/155700650-729fd83d-b206-408d-
 ![image](https://user-images.githubusercontent.com/34960418/155694839-419fd301-d562-445c-800d-972860e4cbf3.png)
 
 
+МиГ-29 ВВС Украины сбивает истребитель Су-35 ВКС противников.
+
+https://user-images.githubusercontent.com/34960418/155702591-fcc2df34-19e7-447f-943d-fbdf15d13be8.mp4
+
 
 ## Kherson
 
@@ -359,6 +363,7 @@ https://user-images.githubusercontent.com/34960418/155690477-e9bf2b34-6291-4d8e-
 
 
 # How to make MOLOTOV
+
 
 ![image](https://user-images.githubusercontent.com/34960418/155696256-9d3ef9e0-95f0-4757-b509-b289668506a7.png)
 
