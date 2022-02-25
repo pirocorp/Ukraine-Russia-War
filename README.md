@@ -313,6 +313,15 @@ Russian convoy destroyed near Kherson
 https://user-images.githubusercontent.com/34960418/155685575-6de986a6-bfb7-493c-8371-71e9f67d988b.mp4
 
 
+## Kharkiv Russian R-149MA1 command vehicle
+
+https://user-images.githubusercontent.com/34960418/155687756-e8466e35-e980-4d40-8319-9682598ce45e.mp4
 
 
+## Rostov
+
+Ukrainian troops hit a military airfield in Millerovo in the Rostov region
+
+
+https://user-images.githubusercontent.com/34960418/155687969-6f1efdda-5efc-451a-b707-420142e3171b.mp4
 
