@@ -304,6 +304,8 @@ Suhoi
 
 https://user-images.githubusercontent.com/34960418/155686800-563a8d0d-84fd-4e42-801c-94f47abb5b62.mp4
 
+https://user-images.githubusercontent.com/34960418/155689155-9357a061-d61f-4497-b837-4425a056e404.mp4
+
 
 
 ## Kherson
@@ -326,4 +328,8 @@ Ukrainian troops hit a military airfield in Millerovo in the Rostov region
 
 
 https://user-images.githubusercontent.com/34960418/155687969-6f1efdda-5efc-451a-b707-420142e3171b.mp4
+
+
+
+
 
