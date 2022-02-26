@@ -471,3 +471,11 @@ https://user-images.githubusercontent.com/34960418/155838348-3a618483-0145-4f62-
 
 https://user-images.githubusercontent.com/34960418/155838801-11c4d59c-20c4-446f-85ff-806e97c2210f.MP4
 
+
+Another wiped out Russian "Z" Marked Logistics and Artillery Convoy on the road in-between Radensky and Oleski spotted earlier this morning.
+
+https://user-images.githubusercontent.com/34960418/155839799-595d2109-c821-4067-8bcd-9c9d4b58783d.mp4
+
+![image](https://user-images.githubusercontent.com/34960418/155839838-1a07f60b-56a9-4c4f-9cec-2ce9010dec69.png)
+
+
