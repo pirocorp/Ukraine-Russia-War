@@ -468,6 +468,10 @@ https://user-images.githubusercontent.com/34960418/155837217-8aa224fd-45c3-4b64-
 https://user-images.githubusercontent.com/34960418/155845715-635f1f8d-a8d3-4e4b-926f-41158cfcb148.MP4
 
 
+https://user-images.githubusercontent.com/34960418/155845863-85922d29-e1a1-472c-b487-0562b6b53911.MP4
+
+
+
 
 ## Kherson
 
@@ -490,3 +494,16 @@ https://user-images.githubusercontent.com/34960418/155839799-595d2109-c821-4067-
 # 26.02.2022:13:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155842251-1c66f2a4-dae0-4eae-8914-724863c6be83.png)
+
+
+# Chernigov
+
+![image](https://user-images.githubusercontent.com/34960418/155845828-41fe00a3-c744-4aa3-b558-f0693b1151ad.png)
+
+
+https://user-images.githubusercontent.com/34960418/155845950-0e30cc40-aac7-4d78-86a2-d0a6a7b7a35d.MP4
+
+https://user-images.githubusercontent.com/34960418/155845951-045007dd-1e37-4b8a-917f-56b237d3ee8b.mp4
+
+https://user-images.githubusercontent.com/34960418/155845954-61586e0b-b14c-48b3-a4f8-9236a84d90d1.mp4
+
