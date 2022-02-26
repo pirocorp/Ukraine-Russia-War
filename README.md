@@ -450,3 +450,12 @@ https://user-images.githubusercontent.com/34960418/155767732-f692b913-64e8-4976-
 ## Cherkasy
 
 https://user-images.githubusercontent.com/34960418/155808064-6d98c570-3b2a-44c4-a042-d69903067dde.mp4
+
+
+
+# 26.02.2022:06:00
+
+## Odessa
+
+https://user-images.githubusercontent.com/34960418/155837217-8aa224fd-45c3-4b64-bf73-fa054d984c86.mp4
+
