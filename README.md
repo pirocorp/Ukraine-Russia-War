@@ -548,3 +548,9 @@ https://user-images.githubusercontent.com/34960418/155854118-856cd797-7c80-46ba-
 
 https://user-images.githubusercontent.com/34960418/155854120-95f1f7ab-9aac-48b0-a53e-2dededbd5251.mp4
 
+
+# 26.02.2022:19:00
+
+![image](https://user-images.githubusercontent.com/34960418/155855115-c1a2c5d1-ccf4-4928-ab08-26ada55b9a4c.png)
+
+
