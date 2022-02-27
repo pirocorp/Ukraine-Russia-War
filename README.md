@@ -717,7 +717,11 @@ https://user-images.githubusercontent.com/34960418/155897768-43a2ef9e-f9eb-46c9-
 https://user-images.githubusercontent.com/34960418/155897191-4494bb68-4a54-4c61-92c3-84fe0a3c5b0c.MP4
 
 
+## Nova Kakhovka
 
+![image](https://user-images.githubusercontent.com/34960418/155898026-3dff1a72-48ca-4017-a5ed-3a88e540cdba.png)
+
+https://user-images.githubusercontent.com/34960418/155898063-5c39ebd7-6ec5-444b-b6b6-2f41c1f35a05.mp4
 
 
 
