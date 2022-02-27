@@ -689,6 +689,11 @@ https://user-images.githubusercontent.com/34960418/155894889-977467ee-13eb-4d31-
 
 https://user-images.githubusercontent.com/34960418/155895507-4052528f-cb0a-4920-bf69-c7907d51b1c5.mp4
 
+https://user-images.githubusercontent.com/34960418/155896921-de4f2802-6a2d-416d-9e9d-c03b37e4b97a.mp4
+
+https://user-images.githubusercontent.com/34960418/155896922-6fecd74d-2c7c-4dc5-aa33-be857f3e1583.mp4
+
+
 
 ## Kherson
 
@@ -697,6 +702,11 @@ https://user-images.githubusercontent.com/34960418/155896710-186ce884-e367-4ce9-
 
 
 
+# 27.02.2022:20:00
+
+## Kharkiv
+
+https://user-images.githubusercontent.com/34960418/155897191-4494bb68-4a54-4c61-92c3-84fe0a3c5b0c.MP4
 
 
 
