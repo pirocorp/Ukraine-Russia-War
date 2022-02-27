@@ -712,6 +712,9 @@ https://user-images.githubusercontent.com/34960418/155897768-43a2ef9e-f9eb-46c9-
 
 # 27.02.2022:20:00
 
+![image](https://user-images.githubusercontent.com/34960418/155898204-ed736689-8af9-482d-9bc3-035280ef299d.png)
+
+
 ## Kharkiv
 
 https://user-images.githubusercontent.com/34960418/155897191-4494bb68-4a54-4c61-92c3-84fe0a3c5b0c.MP4
