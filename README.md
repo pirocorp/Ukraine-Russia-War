@@ -700,6 +700,14 @@ https://user-images.githubusercontent.com/34960418/155896922-6fecd74d-2c7c-4dc5-
 https://user-images.githubusercontent.com/34960418/155896710-186ce884-e367-4ce9-b0dd-530ae13745f2.MP4
 
 
+## Bairaktar
+
+https://user-images.githubusercontent.com/34960418/155897766-26c813f0-eba2-4c01-9335-84080d2cc22c.MP4
+
+https://user-images.githubusercontent.com/34960418/155897768-43a2ef9e-f9eb-46c9-a8e5-29d875887f6f.mp4
+
+
+
 
 
 # 27.02.2022:20:00
