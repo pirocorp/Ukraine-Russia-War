@@ -699,9 +699,6 @@ https://user-images.githubusercontent.com/34960418/155896922-6fecd74d-2c7c-4dc5-
 
 https://user-images.githubusercontent.com/34960418/155896710-186ce884-e367-4ce9-b0dd-530ae13745f2.MP4
 
-https://user-images.githubusercontent.com/34960418/155897385-29d4308f-fef9-44ba-882c-119f64bedb05.MP4
-
-
 
 
 
