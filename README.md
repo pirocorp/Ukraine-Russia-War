@@ -591,7 +591,7 @@ https://user-images.githubusercontent.com/34960418/155862065-1c081fce-ce68-4a3e-
 https://user-images.githubusercontent.com/34960418/155860307-19042a53-aa2a-43fb-8fe7-cbb9e6e5a8d5.mp4
 
 
-27.02.2022:00:00
+# 27.02.2022:00:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155861840-90ece7dd-0241-4196-8c72-712eb1b2bf0c.png)
 
@@ -602,4 +602,15 @@ https://user-images.githubusercontent.com/34960418/155860307-19042a53-aa2a-43fb-
 https://user-images.githubusercontent.com/34960418/155862450-bb744013-db38-4a32-8f74-514bd00af952.MP4
 
 
+
+# 27.02.2022:10:00
+
+## Kharkov
+
+![image](https://user-images.githubusercontent.com/34960418/155875825-83549787-3c92-4ede-8467-fbac319bb093.png)
+![image](https://user-images.githubusercontent.com/34960418/155875855-1a76b89c-0993-43ef-8244-c89eb19198b9.png)
+
+
+https://user-images.githubusercontent.com/34960418/155875754-028f7486-e578-4681-a660-18c00b4a0429.mp4
+https://user-images.githubusercontent.com/34960418/155875891-f53b90e5-21b7-4744-81cc-991ee09b7652.mp4
 
