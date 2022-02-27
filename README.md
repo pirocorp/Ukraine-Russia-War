@@ -597,12 +597,6 @@ https://user-images.githubusercontent.com/34960418/155860307-19042a53-aa2a-43fb-
 
 
 
-## Kharkov
-
-https://user-images.githubusercontent.com/34960418/155862450-bb744013-db38-4a32-8f74-514bd00af952.MP4
-
-
-
 # 27.02.2022:10:00
 
 ![image](https://user-images.githubusercontent.com/34960418/155876375-6d920804-0069-4dda-834c-3e83f327f12e.png)
