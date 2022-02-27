@@ -605,6 +605,9 @@ https://user-images.githubusercontent.com/34960418/155862450-bb744013-db38-4a32-
 
 # 27.02.2022:10:00
 
+![image](https://user-images.githubusercontent.com/34960418/155876375-6d920804-0069-4dda-834c-3e83f327f12e.png)
+
+
 ## Kharkov
 
 ![image](https://user-images.githubusercontent.com/34960418/155875825-83549787-3c92-4ede-8467-fbac319bb093.png)
