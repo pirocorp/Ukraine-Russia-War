@@ -788,6 +788,9 @@ https://user-images.githubusercontent.com/34960418/156025550-2c572245-9128-4463-
 
 ## Kharkov
 
+![image](https://user-images.githubusercontent.com/34960418/156055827-fd497057-91af-4818-82b5-b01acae87c51.png)
+
+
 https://user-images.githubusercontent.com/34960418/156026131-91903b4d-a048-4ab7-b8f9-3035dc85472e.mp4
 
 
