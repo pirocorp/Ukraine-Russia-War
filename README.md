@@ -777,3 +777,11 @@ https://user-images.githubusercontent.com/34960418/155995483-82fc804a-7037-4514-
 
 https://user-images.githubusercontent.com/34960418/156009328-b4f16f41-0fa5-4c80-b09a-8600be14a270.MP4
 
+
+
+# 28.02.2022:18:00
+
+## Kiev
+
+https://user-images.githubusercontent.com/34960418/156025550-2c572245-9128-4463-8a32-4b4801c18fc4.MP4
+
