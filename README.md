@@ -830,4 +830,16 @@ https://user-images.githubusercontent.com/34960418/156136227-2ac328ae-0d1b-4a5f-
 https://user-images.githubusercontent.com/34960418/156159427-9c342637-b656-4da4-bb07-007825066dc7.MP4
 
 
+## Captured vehicles
+
+![image](https://user-images.githubusercontent.com/34960418/156225093-f71c30d4-54fd-4e8d-bc33-b218ebda3212.png)
+![image](https://user-images.githubusercontent.com/34960418/156225117-2fe94934-74c0-48d1-90ac-a7b9a0bc0db6.png)
+![image](https://user-images.githubusercontent.com/34960418/156225135-202c6a6e-04dd-4121-be42-bbbecd8d64d3.png)
+![image](https://user-images.githubusercontent.com/34960418/156225160-ee96f31c-8a77-458f-911f-e7bf7b92c25c.png)
+![image](https://user-images.githubusercontent.com/34960418/156225205-006ef0ac-4ca2-422d-b315-d3e855915a99.png)
+
+
+## Markings
+
+![image](https://user-images.githubusercontent.com/34960418/156225355-e9df47e8-1d13-4e14-a872-25ab521da7a1.png)
 
