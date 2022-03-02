@@ -873,3 +873,12 @@ https://user-images.githubusercontent.com/34960418/156227612-4b6fec7f-70d4-4dc8-
 
 https://user-images.githubusercontent.com/34960418/156271428-0c3f29e1-a8c8-46c8-b689-4853dd0d1f4c.mp4
 
+
+## Sumy
+
+BTR-MDM airborne APC and 1V119 artillery 
+
+![image](https://user-images.githubusercontent.com/34960418/156271630-8f5527b8-c4f7-43b9-91ee-ff03444cf7bf.png)
+
+![image](https://user-images.githubusercontent.com/34960418/156271659-9ecd7008-771f-4e31-b870-929acc677771.png)
+
