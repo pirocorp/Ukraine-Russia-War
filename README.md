@@ -874,6 +874,13 @@ https://user-images.githubusercontent.com/34960418/156227612-4b6fec7f-70d4-4dc8-
 https://user-images.githubusercontent.com/34960418/156271428-0c3f29e1-a8c8-46c8-b689-4853dd0d1f4c.mp4
 
 
+## Mariupol
+
+https://user-images.githubusercontent.com/34960418/156272005-5cac0c4f-cea2-4437-bb1a-35c90f5f31dc.mp4
+
+
+
+
 ## Sumy
 
 BTR-MDM airborne APC and 1V119 artillery 
