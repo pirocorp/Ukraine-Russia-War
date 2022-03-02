@@ -900,3 +900,11 @@ Russian planners thought they would take Ukraine in 15 days
 ![image](https://user-images.githubusercontent.com/34960418/156399615-f59c5d5d-f1f7-4c17-b8f1-5f7d2ef80640.png)
 ![image](https://user-images.githubusercontent.com/34960418/156399639-d1a9eda7-9462-4b04-a525-af9f0d46d911.png)
 ![image](https://user-images.githubusercontent.com/34960418/156399678-56c0394e-0f8c-4a43-9e04-4737633e4590.png)
+
+
+# 02.03.2022:17:00
+
+
+![image](https://user-images.githubusercontent.com/34960418/156400193-62b2c881-a1d4-4e57-9789-976e3744e07f.png)
+![image](https://user-images.githubusercontent.com/34960418/156400266-b7f0f292-4617-4fca-bda6-c74e9d0d0b99.png)
+![image](https://user-images.githubusercontent.com/34960418/156400312-bd141bf3-fc26-4618-af96-9a505f41da29.png)
