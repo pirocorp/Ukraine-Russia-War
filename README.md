@@ -889,3 +889,14 @@ BTR-MDM airborne APC and 1V119 artillery
 
 ![image](https://user-images.githubusercontent.com/34960418/156271659-9ecd7008-771f-4e31-b870-929acc677771.png)
 
+
+## Russian battle plans
+
+Russian statements after Jan 18th were blatant lies, war plans had been approved
+
+Russian planners thought they would take Ukraine in 15 days
+
+![image](https://user-images.githubusercontent.com/34960418/156399516-dd152319-1631-4fda-b564-448f19916b02.png)
+![image](https://user-images.githubusercontent.com/34960418/156399615-f59c5d5d-f1f7-4c17-b8f1-5f7d2ef80640.png)
+![image](https://user-images.githubusercontent.com/34960418/156399639-d1a9eda7-9462-4b04-a525-af9f0d46d911.png)
+![image](https://user-images.githubusercontent.com/34960418/156399678-56c0394e-0f8c-4a43-9e04-4737633e4590.png)
