@@ -97,3 +97,9 @@ Location of invading Russian forces. Border post cameras have been disabled Crim
 
 
 https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-bf7c-491ca5c22fb1.mp4
+
+
+# WAR
+
+[02.2022](https://github.com/pirocorp/Ukraine-Russia-War/tree/main/02.2022)
+
