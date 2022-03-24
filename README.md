@@ -42,7 +42,7 @@ The decrees on recognizing the Donetsk and Luhansk People’s Republics order th
 ![image](https://user-images.githubusercontent.com/34960418/155035690-862febdc-1c5c-4117-be4d-8ebe17d860d9.png)
 
 
-## key railway / road junctions near Kyiv
+## Key railway / road junctions near Kyiv
 
 I fear that we will soon hear more about the small cities of Ovruch, Korosten, Malyn, Ivankiv and Chernihiv in #Ukraine. As key railway / road junctions near Kyiv, they are bound to be in harm's way of Russia's 35th, 36th and 41st Combined Arms Armies (CAAs), based in Belarus.
 
