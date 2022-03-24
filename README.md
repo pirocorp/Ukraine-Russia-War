@@ -85,14 +85,10 @@ Meanwhile in Russia: the national standard for "Urgent burial of corpses in peac
 
 ![image](https://user-images.githubusercontent.com/34960418/155390059-1c8a860b-5ad4-4677-bee8-8e8412ef1875.png)
 
-# 23.02.2022:21:00
 
-![image](https://user-images.githubusercontent.com/34960418/155396678-3f54128a-cb0b-4cdd-a0fb-3710d613d0a7.png)
+## Location of invading Russian forces
 
-
-# 23.02.2022:23:16
-
-Possiable location of invading Russian forces. Border post cameras have been disabled Crimea.
+Location of invading Russian forces. Border post cameras have been disabled Crimea.
 
 В Крыму пункт пропуска "Каланчак" закрыли на въезд и выезд для граждан Украины. К нему движется огромная колонна военной техники
 
@@ -101,21 +97,3 @@ Possiable location of invading Russian forces. Border post cameras have been dis
 
 
 https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-bf7c-491ca5c22fb1.mp4
-
-![image](https://user-images.githubusercontent.com/34960418/155421844-de408f1d-dd68-41a4-8bdb-b7a68972a0c2.png)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
