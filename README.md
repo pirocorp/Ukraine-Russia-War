@@ -63,20 +63,23 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 
 
 
-# 23.02.2022:15:00
+# 23.02.2022
 
-«Welcome to hell»
+## Welcome to hell
+
 «Добро пожаловать в ад, вы здесь умрете как паршивые псы. Русских солдат не ждут в Украине! Здесь вас ждут не с цветами, а с Javelin. Если вы придете в Украину, вы отсюда никогда не выйдете!», - народный депутат Украины от «Евросолидарности» Алексей Гончаренко красноречиво объяснил, почему в Украине не ждут российских солдат.
 
 https://user-images.githubusercontent.com/34960418/155382012-4f4a8e99-ba60-436e-9588-c7c2cad98ce7.mp4
 
 
-# 23.02.2022:20:00
+## Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine
 
 It looks like Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine (🇺🇦) in Belarus (🇧🇾). The Belarusian Air Force doesn’t use Su-24’s, but the Ukrainians do. Will this aircraft be used for a fake news story about an attack? 
 
 ![image](https://user-images.githubusercontent.com/34960418/155388586-394091e4-205d-4212-a377-3dcc0f586cd8.png)
 
+
+## Urgent burial of corpses in peacetime and wartime
 
 Meanwhile in Russia: the national standard for "Urgent burial of corpses in peacetime and wartime" is reportedly being introduced by the government. [Mass Graves.](https://en.newizv.ru/article/general/13-12-2021/grave-in-law-state-adopts-national-standard-for-mass-graves?fbclid=IwAR3hC23laheVX16evjBbaw1q0msJF25oxEFU_bk8btW1f2VsZlhebHNpSHQ)
 
