@@ -42,9 +42,9 @@ Tupolev Tu-154M, Russian Navy landing at Yeysk. Mariupol is directly across the 
 ![image](https://user-images.githubusercontent.com/34960418/155035690-862febdc-1c5c-4117-be4d-8ebe17d860d9.png)
 
 
-# 22.02.2022:01:40
+## key railway / road junctions near Kyiv
 
-I fear that we will soon hear more about the small cities of Ovruch, Korosten, Malyn, Ivankiv and Chernihiv in #Ukraine. As key railway / road junctions near #Kyiv, they are bound to be in harm's way of Russia's 35th, 36th and 41st Combined Arms Armies (CAAs), based in Belarus.
+I fear that we will soon hear more about the small cities of Ovruch, Korosten, Malyn, Ivankiv and Chernihiv in #Ukraine. As key railway / road junctions near Kyiv, they are bound to be in harm's way of Russia's 35th, 36th and 41st Combined Arms Armies (CAAs), based in Belarus.
 
 ![image](https://user-images.githubusercontent.com/34960418/155044070-8a39eb95-23c3-4415-b6da-691725b52ead.png)
 
