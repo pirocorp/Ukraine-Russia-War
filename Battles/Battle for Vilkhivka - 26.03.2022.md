@@ -1,4 +1,4 @@
-# Battle for Vilkhivka
+# Battle for Vilkhivka (92 MB)
 
 
 ![image](https://user-images.githubusercontent.com/34960418/160258333-1658f61d-395b-40ea-8387-135d131c80de.png)
