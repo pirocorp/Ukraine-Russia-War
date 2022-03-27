@@ -131,3 +131,18 @@ Further lending that 1st battalion of 26th Grds Tank Regt is around Izyum are th
 ![image](https://user-images.githubusercontent.com/34960418/160283536-53bc2b86-4ca5-421d-a190-789b3b141172.png)
 
 
+Despite failed crossing of Siverskyi Donets River, further east RuAF are south of river at Kam'yanka. Artillery strikes there (49.1067791, 37.2815292). Seems at least 8 vehicles destroyed. UAF still in Izyum but road cut off. 
+
+![image](https://user-images.githubusercontent.com/34960418/160283911-94ad7f7b-5568-4314-87ab-1a299b6f2984.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283874-eb4d52a4-e1f5-49a6-a115-ff832dee8e5f.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283883-714d2bbf-c2f2-407b-a9ef-e873945a73f9.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283887-4cd01ec9-999a-4ca2-9f63-fbb93623cbd6.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283891-aa096eef-20dc-4e67-8387-a7c80275a014.png)
+
+
+
+
