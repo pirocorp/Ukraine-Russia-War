@@ -65,7 +65,7 @@ https://user-images.githubusercontent.com/34960418/160282512-d3899da1-ceb8-45f0-
 
 # 07.03.22
 
-UAF still hold the city south of S-D river. So as of 07/03 not fully captured, 81st not crushed, advance not progressing rapidly.
+UAF still hold the city south of Siverskyi Donets river. So as of 07/03 not fully captured, 81st not crushed, advance not progressing rapidly.
 
 Still the UAF is undeniably under huge pressure around Izyum and suffering losses. Internet is reportedly interrupted but film that does get out shows huge devastation in some parts of the town.
 
