@@ -142,12 +142,19 @@ https://user-images.githubusercontent.com/34960418/160284797-7a1ebd58-20ff-44d4-
 
 A wider RuAF grouping at Kamyanka, Izyum maybe smashed. 26th Guards Regt is in the area. UAF claim '437th Training Regt + battalion-tactical group of 26th tank regt, 47th tank div stopped'.
 
-Video from the Ukrainian military showing several destroyed or captured Russian BMP-3 and BMP-2 vehicles reportedly from Russia's 47th Tank Division in Kamyanka, Kharkiv. It looks like this happened near a pontoon bridge, possibly by anti-tank mines.
+Video from the Ukrainian military showing several destroyed or captured Russian BMP-3 and BMP-2 vehicles reportedly from Russia's 47th Tank Division in Kamyanka, Kharkiv. 
+
+RuAF losses in film:
+- 4x BMP-3 (likely 437th Training Regt).
+- 1x 9P149 Shturm-S + 2x MT-LB (inset pic 2)
+- 2x BMP-2
+- 3x T-72s (nearest pic 4 is a T-72B3M of 26th Grds Tank Regt).
+- 4x N/K.
 
 https://user-images.githubusercontent.com/34960418/160284115-bc68fd4f-c1a9-49d7-8ffe-770577fde38d.mp4
 
 
-Another video from the same location shows the same BMP-2 as well as a R-149MA1 command-staff vehicle.
+Another video from the same location shows the same BMP-2 as well as a R-149MA1 command-staff vehicle also damaged or abandoned at Kamyanka dam. Previous film (along with this film) confirms UAF control at time of recording + UAF use of landmines.
 
 https://user-images.githubusercontent.com/34960418/160284177-ba239844-ad5e-4390-992b-34a4b203633d.mp4
 
@@ -170,5 +177,12 @@ So not a pontoon bridge. RuAF remain south of SD river.
 ![image](https://user-images.githubusercontent.com/34960418/160284488-278d5cbd-ebb0-4c9d-9ad4-51b6023ba320.png)
 
 ![image](https://user-images.githubusercontent.com/34960418/160284494-a2bed8f4-6a64-4f63-b077-801ad26f1cb3.png)
+
+
+Kapytolivka, east of Izyum (north of the SD river). A RuAF tanker explains how a T-72BA was damaged by a Grad rocket but claims it can still move as track ok. 144 Motor Rifle Div in area run T-72BA. Located at 49.195479, 37.339567
+
+![image](https://user-images.githubusercontent.com/34960418/160285085-02d9d178-c109-4d44-be52-741bf367d379.png)
+
+https://user-images.githubusercontent.com/34960418/160285154-1fcbe412-0080-4051-acc8-b2cedef58474.mp4
 
 
