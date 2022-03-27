@@ -166,7 +166,7 @@ https://user-images.githubusercontent.com/34960418/160284238-edab3669-162f-4caa-
 
 Another video showing the destroyed Russian vehicles from the same location. Looks like 7 BMP-3 or more, MT-LB, BMP, truck, and a tank.
 
-https://user-images.githubusercontent.com/34960418/160284289-35d8629b-3653-4fb0-b125-ccf561fa5ff8.mp4
+https://user-images.githubusercontent.com/34960418/160285535-c07b225c-f4c2-4ea5-b73d-37e2700dfe1b.mp4
 
 
 Destroyed RuAF column (BTG 26th Grds Tank Regt + 437th Training Regt) is at 49.106303,37.282868, same location as artillery hits seen.
