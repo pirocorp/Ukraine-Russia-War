@@ -313,12 +313,10 @@ West of Izyum two BTGs from RuAF 3rd Motor Rifle Div + special forces reportedly
 ![image](https://user-images.githubusercontent.com/34960418/160289741-7cf27aba-442b-4520-9f79-62a06200773b.png)
 
 
-## 2 x BTR-82A
+## 3 x BTR-82A
 
 ![image](https://user-images.githubusercontent.com/34960418/160289762-52114dd2-0dc2-4b2a-a16f-b1ec000cd130.png)
 
 ![image](https://user-images.githubusercontent.com/34960418/160289821-b905e75a-a4c0-41ab-9ab5-1e07dfc99611.png)
 
-
-
-## MT-LB from 237th Tank Regiment of 3rd Motor Rifle Div.
+![image](https://user-images.githubusercontent.com/34960418/160289878-70b85838-6e06-4d78-a664-663fb9aef498.png)
