@@ -162,21 +162,19 @@ Another video showing the destroyed Russian vehicles from the same location. Loo
 https://user-images.githubusercontent.com/34960418/160285535-c07b225c-f4c2-4ea5-b73d-37e2700dfe1b.mp4
 
 
+Second part of the video.
+
+https://user-images.githubusercontent.com/34960418/160285750-7e27d950-9c7c-476f-903b-dd77bb88c23b.mp4
+
 Destroyed RuAF column (BTG 26th Grds Tank Regt + 437th Training Regt) is at 49.106303,37.282868, same location as artillery hits seen.
-- 8x BMP-3 claimed 
+- 10x BMP-3 claimed 
 - KamAZ truck captured 
 - 9P149 Shturm-S, 
 - MT-LB, 
 - T-72B3, 
 - R-149MA1 
 - 2 x BMP-2
-
-
-So not a pontoon bridge. RuAF remain south of SD river.
-
-![image](https://user-images.githubusercontent.com/34960418/160284488-278d5cbd-ebb0-4c9d-9ad4-51b6023ba320.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160284494-a2bed8f4-6a64-4f63-b077-801ad26f1cb3.png)
+- 10 x KamAZ
 
 
 Kapytolivka, east of Izyum (north of the SD river). A RuAF tanker explains how a T-72BA was damaged by a Grad rocket but claims it can still move as track ok. 144 Motor Rifle Div in area run T-72BA. Located at 49.195479, 37.339567
