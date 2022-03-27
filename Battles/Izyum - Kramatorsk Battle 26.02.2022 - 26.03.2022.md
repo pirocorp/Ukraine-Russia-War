@@ -197,5 +197,42 @@ First scene in Izyum 49.19327, 37.25008, north of river.
 https://user-images.githubusercontent.com/34960418/160285293-ec343dfc-8f1e-4422-9672-577905732228.mp4
 
 
+# 19.03.22
 
+Death of the CO of RuAF Nikolay Ovcharenko 45th Engineering Brigade near Izyum. Reports state he died overseeing a pontoon bridge over Siverskyi Donets River. 
+
+![image](https://user-images.githubusercontent.com/34960418/160286433-dbeb2b2f-9e92-4949-bcbf-5cecc8af5655.png)
+
+
+This is the area where RuAF likely crossed Siverskyi Donets River. In sat pic there's a possible pontoon bridge at 49.152728, 37.249997. On 14/03/22 UAF claimed they repulsed an attack in area but RuAF maybe laid more than 1 bridge.
+
+![image](https://user-images.githubusercontent.com/34960418/160286554-6ddc8b34-4ab6-4189-af18-344b1252734a.png)
+
+
+# 22.03.2022
+
+Location of 2 RuAF pontoon bridges on Siverskyi Donets River SW of Izyum are confirmed.
+1st is at 49.152728, 37.249997
+2nd at 49.14836, 37.23463
+
+![image](https://user-images.githubusercontent.com/34960418/160286789-9ed5a4b8-8846-4441-b513-f567afacf9e7.png)
+
+
+Also Izium district. As with similar UAV directed artillery fire, seems spotting is accurate even at high altitude. One unknown RuAF AFV destroyed, likely a 2S3 SP howitzer judging by the 3 in line to its right. 2nd film in link is unclear.
+
+https://user-images.githubusercontent.com/34960418/160286926-1c930784-6cf7-4ead-bca5-f38d269fc9dd.mp4
+
+
+# 23.03.2022
+
+After death of the CO of 45th Engineering Brigade near Izyum, confirmed deaths of 2 more RuAF commanders suggests tough battles around Izyum.
+
+First this battalion CO in 144 Motor Rifle Division. Major Dmitry Toptun was a motorized rifle battalion commander reportedly killed near Izyum on March 14 when his BMP was struck by an anti-tank munition.
+
+![image](https://user-images.githubusercontent.com/34960418/160287056-fbb61e22-aeb2-4398-8f61-d17106c35a23.png)
+
+
+Further to the deaths of the COs of an engineering bde + motor rifle battalion near Izyum, on 15/03/22 first reports of the death of CO of 252nd Motor Rifle Regiment (3rd Motorized Rifle Divi). The 3rd MRD are believed to be SE of Izyum.
+
+![image](https://user-images.githubusercontent.com/34960418/160287118-fef73847-5f7a-4b22-854b-042998eb9e40.png)
 
