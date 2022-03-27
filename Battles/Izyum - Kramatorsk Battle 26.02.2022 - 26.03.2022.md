@@ -87,10 +87,47 @@ RuAF also reportedly used BM-30 Smerch MLRS near Izium. RuAF presence at north o
 https://user-images.githubusercontent.com/34960418/160283161-b7fb840a-8aa6-4c20-8419-549c37d9119b.mp4
 
 
+T-72B3M in video seems to have same red unit mark as this. This is from 26 Gds Tank Regt (single dot in white square = 1st batt).
+
+![image](https://user-images.githubusercontent.com/34960418/160283329-29f0196b-e4a1-42c9-90fe-e126ced9ba9d.png)
+
+
+This is also unit RU claimed returned to base in prewar false propaganda.
+
+![image](https://user-images.githubusercontent.com/34960418/160283353-b8170e56-70b9-4cf6-9ea7-ced3937923d7.png)
+
+
 Russian UAV footage reportedly showing Smerch MLRS strikes in Izyum.
 
 https://user-images.githubusercontent.com/34960418/160282926-cb796dcd-25d8-45d4-8d0b-886649797493.mp4
 
 
+Russian forces reportedly crossed the Siverskyi Donets River in an apparent attempt to outflank Izyum to the south west, but were reportedly repulsed.
+
+![image](https://user-images.githubusercontent.com/34960418/160283633-8657dd4b-e63d-4e60-b54a-1ec74dbf9ced.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283624-fcc94de3-7df3-465e-86d9-46ddae72c49b.png)
+
+
+# 15.03.2022
+
+Russian army lost 3 modern T-72B3 obr. 2016 tanks and BMP-2 IFV. The vehicles were damaged and later captured by Ukrainian forces.
+
+![image](https://user-images.githubusercontent.com/34960418/160283413-6c8f2bc3-9173-458c-b0b6-b5dad08a9d5d.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283422-e2e20977-f4f8-4382-a24e-149b0636dc11.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283428-2fbc854f-adb5-4e39-9165-ce5eee045b0c.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283439-af100ef6-5aa4-4158-b0b7-a836b149c2d6.png)
+
+
+Further lending that 1st battalion of 26th Grds Tank Regt is around Izyum are these captured effects from 6th Separate Tank Bde, a unit defunct since 12/2020 when it was renamed/reformed as the 26th
+
+![image](https://user-images.githubusercontent.com/34960418/160283525-3b3a63a5-de2c-4fb5-a3bd-bcbc03b52503.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283531-ecd45e5b-6df3-4968-a6e0-5324e451a293.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160283536-53bc2b86-4ca5-421d-a190-789b3b141172.png)
 
 
