@@ -169,7 +169,7 @@ Destroyed RuAF column (BTG 26th Grds Tank Regt + 437th Training Regt) is at 49.1
 - MT-LB, 
 - T-72B3, 
 - R-149MA1 
-- BMP-2 are already counted.
+- 2 x BMP-2
 
 
 So not a pontoon bridge. RuAF remain south of SD river.
