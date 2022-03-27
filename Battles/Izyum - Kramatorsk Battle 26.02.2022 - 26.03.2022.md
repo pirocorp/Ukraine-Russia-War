@@ -133,17 +133,11 @@ Further lending that 1st battalion of 26th Grds Tank Regt is around Izyum are th
 
 # 17.03.22
 
-Despite failed crossing of Siverskyi Donets River, further east RuAF are south of river at Kam'yanka. Artillery strikes there (49.1067791, 37.2815292). Seems at least 8 vehicles destroyed. UAF still in Izyum but road cut off. 
+Despite failed crossing of Siverskyi Donets River, further east RuAF are south of river at Kam'yanka. Artillery strikes there (49.1067791, 37.2815292). Seems at least 8 vehicles destroyed. UAF still in Izyum but road cut off.
 
-![image](https://user-images.githubusercontent.com/34960418/160283911-94ad7f7b-5568-4314-87ab-1a299b6f2984.png)
+Ukrainian BDA of destroyed 26th Grds Tank Regt column at Kamyanka dam twt 12-14. One slide states 'moving toward Sukha Kam'yanka village' 4.5 km east.
 
-![image](https://user-images.githubusercontent.com/34960418/160283874-eb4d52a4-e1f5-49a6-a115-ff832dee8e5f.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160283883-714d2bbf-c2f2-407b-a9ef-e873945a73f9.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160283887-4cd01ec9-999a-4ca2-9f63-fbb93623cbd6.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160283891-aa096eef-20dc-4e67-8387-a7c80275a014.png)
+https://user-images.githubusercontent.com/34960418/160284797-7a1ebd58-20ff-44d4-85db-46404563f815.mp4
 
 
 A wider RuAF grouping at Kamyanka, Izyum maybe smashed. 26th Guards Regt is in the area. UAF claim '437th Training Regt + battalion-tactical group of 26th tank regt, 47th tank div stopped'.
@@ -167,5 +161,14 @@ Another video showing the destroyed Russian vehicles from the same location. Loo
 
 https://user-images.githubusercontent.com/34960418/160284289-35d8629b-3653-4fb0-b125-ccf561fa5ff8.mp4
 
+
+Destroyed RuAF column (BTG 26th Grds Tank Regt + 437th Training Regt) is at 49.106303,37.282868, same location as artillery hits seen.
+
+
+So not a pontoon bridge. RuAF remain south of SD river.
+
+![image](https://user-images.githubusercontent.com/34960418/160284488-278d5cbd-ebb0-4c9d-9ad4-51b6023ba320.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160284494-a2bed8f4-6a64-4f63-b077-801ad26f1cb3.png)
 
 
