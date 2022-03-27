@@ -144,13 +144,6 @@ A wider RuAF grouping at Kamyanka, Izyum maybe smashed. 26th Guards Regt is in t
 
 Video from the Ukrainian military showing several destroyed or captured Russian BMP-3 and BMP-2 vehicles reportedly from Russia's 47th Tank Division in Kamyanka, Kharkiv. 
 
-RuAF losses in film:
-- 4x BMP-3 (likely 437th Training Regt).
-- 1x 9P149 Shturm-S + 2x MT-LB (inset pic 2)
-- 2x BMP-2
-- 3x T-72s (nearest pic 4 is a T-72B3M of 26th Grds Tank Regt).
-- 4x N/K.
-
 https://user-images.githubusercontent.com/34960418/160284115-bc68fd4f-c1a9-49d7-8ffe-770577fde38d.mp4
 
 
@@ -170,6 +163,13 @@ https://user-images.githubusercontent.com/34960418/160285535-c07b225c-f4c2-4ea5-
 
 
 Destroyed RuAF column (BTG 26th Grds Tank Regt + 437th Training Regt) is at 49.106303,37.282868, same location as artillery hits seen.
+- 8x BMP-3 claimed 
+- KamAZ truck captured 
+- 9P149 Shturm-S, 
+- MT-LB, 
+- T-72B3, 
+- R-149MA1 
+- BMP-2 are already counted.
 
 
 So not a pontoon bridge. RuAF remain south of SD river.
