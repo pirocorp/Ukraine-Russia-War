@@ -84,13 +84,7 @@ https://user-images.githubusercontent.com/34960418/160282713-0bbb4b0f-60e5-48f6-
 
 RuAF also reportedly used BM-30 Smerch MLRS near Izium. RuAF presence at north of river 3x T-72B3M at 49.184570, 37.245190 Likely 26 Gds Tank Regt.
 
-![image](https://user-images.githubusercontent.com/34960418/160283026-685b2acc-d57b-4297-a093-bab8039439d7.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160283035-ffe527bf-0e50-44e5-83d8-1eb94db9e06b.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160283048-f1b0f3bd-1d57-411a-8cdf-2827897fd94d.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160283061-43b306d3-1fcd-488e-b3c8-edae3e23574d.png)
+https://user-images.githubusercontent.com/34960418/160283161-b7fb840a-8aa6-4c20-8419-549c37d9119b.mp4
 
 
 Russian UAV footage reportedly showing Smerch MLRS strikes in Izyum.
