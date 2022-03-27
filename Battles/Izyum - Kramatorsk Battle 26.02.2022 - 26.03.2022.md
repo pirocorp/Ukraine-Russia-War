@@ -61,3 +61,14 @@ The main UAF unit covering the RuAF advance on Izyum is the 81st Separate Airmob
 https://user-images.githubusercontent.com/34960418/160282512-d3899da1-ceb8-45f0-a4cd-77c7934cc5f3.mp4
 
 
+# 07.03.22
+
+UAF still hold the city south of S-D river. So as of 07/03 not fully captured, 81st not crushed, advance not progressing rapidly.
+
+Still the UAF is undeniably under huge pressure around Izyum and suffering losses. Internet is reportedly interrupted but film that does get out shows huge devastation in some parts of the town.
+
+Some of the devastation in Izyum has been from air strikes. Ukraine claimed one RuAF aircraft was downed. A 2nd film in link shows 2 parachutes so possibly a Su-30SM or Su-34.
+
+https://user-images.githubusercontent.com/34960418/160282713-0bbb4b0f-60e5-48f6-9267-fad087cd9b00.mp4
+
+
