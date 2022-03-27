@@ -238,3 +238,23 @@ Further to the deaths of the COs of an engineering bde + motor rifle battalion n
 
 ![image](https://user-images.githubusercontent.com/34960418/160287118-fef73847-5f7a-4b22-854b-042998eb9e40.png)
 
+
+# 24.03.2022
+
+Importance of Izyum is not the town but its bridges. One is blown + other believed damaged. The two main rivers crossing the Siverskyi Donets river into Izyum have been destroyed. The Russians have laid a pontoon bridge further south to attack the city from that direction.
+
+![image](https://user-images.githubusercontent.com/34960418/160287376-b8f3d200-7cc6-4ee0-8b5a-9557528c7b03.png)
+
+
+In regard to the two main bridges at Izyum believed destroyed or damaged by UAF in tweet 30, there is also a third foot suspension bridge. It also seems damaged in recent imagery.
+
+![image](https://user-images.githubusercontent.com/34960418/160287442-30d504b2-0c2d-4d8c-b9bb-b9571049d188.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160287520-be9fa2b7-acce-480f-9e26-d2fc036f7b48.png)
+
+
+Devastation in parts of the city
+
+https://user-images.githubusercontent.com/34960418/160287590-5b160f6f-02d8-44a8-9fb6-02136edba5f9.mp4
+
+
