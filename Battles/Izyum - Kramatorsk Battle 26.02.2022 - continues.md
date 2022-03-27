@@ -1,4 +1,4 @@
-# Izyum - Kramatorsk Battle 26.02.2022 - 26.03.2022
+# Izyum - Kramatorsk Battle 26.02.2022 - continues
 
 ![image](https://user-images.githubusercontent.com/34960418/160281637-4883827e-cffb-4873-abef-dfe87be7b771.png)
 
