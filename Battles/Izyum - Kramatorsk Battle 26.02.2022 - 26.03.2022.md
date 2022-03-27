@@ -217,6 +217,8 @@ Location of 2 RuAF pontoon bridges on Siverskyi Donets River SW of Izyum are con
 
 ![image](https://user-images.githubusercontent.com/34960418/160286789-9ed5a4b8-8846-4441-b513-f567afacf9e7.png)
 
+![image](https://user-images.githubusercontent.com/34960418/160287208-a1f798bc-a654-42cc-b0d3-0156f64ceb71.png)
+
 
 Also Izium district. As with similar UAV directed artillery fire, seems spotting is accurate even at high altitude. One unknown RuAF AFV destroyed, likely a 2S3 SP howitzer judging by the 3 in line to its right. 2nd film in link is unclear.
 
@@ -230,8 +232,6 @@ After death of the CO of 45th Engineering Brigade near Izyum, confirmed deaths o
 First this battalion CO in 144 Motor Rifle Division. Major Dmitry Toptun was a motorized rifle battalion commander reportedly killed near Izyum on March 14 when his BMP was struck by an anti-tank munition.
 
 ![image](https://user-images.githubusercontent.com/34960418/160287056-fbb61e22-aeb2-4398-8f61-d17106c35a23.png)
-
-![image](https://user-images.githubusercontent.com/34960418/160287208-a1f798bc-a654-42cc-b0d3-0156f64ceb71.png)
 
 
 Further to the deaths of the COs of an engineering bde + motor rifle battalion near Izyum, on 15/03/22 first reports of the death of CO of 252nd Motor Rifle Regiment (3rd Motorized Rifle Divi). The 3rd MRD are believed to be SE of Izyum.
