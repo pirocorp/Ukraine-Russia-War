@@ -258,3 +258,67 @@ Devastation in parts of the city
 https://user-images.githubusercontent.com/34960418/160287590-5b160f6f-02d8-44a8-9fb6-02136edba5f9.mp4
 
 
+# 27.03.22
+
+West of Izyum two BTGs from RuAF 3rd Motor Rifle Div + special forces reportedly lost 60 pieces of equipment at Husarivka, Kharkiv Obt. A battalion CO among casualties. 
+
+![image](https://user-images.githubusercontent.com/34960418/160289700-aedd81e2-414b-4db6-af96-8b5a558d465e.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160289714-11efe35e-cb0e-40be-9087-df32d12f077c.png)
+
+
+## 2A65 Msta-B 152mm howitzer
+
+![image](https://user-images.githubusercontent.com/34960418/160289404-858de297-c76a-46fb-b91b-2990b41d2e1e.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160289410-a9758b52-b7ae-4c85-9865-0e1fffb3a8f1.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160289427-ce3e3c87-ddc4-4aa9-800e-e5f9ecce0c3f.png)
+
+
+## 2S23 Nona-SVK self propelled mortar from its 752 Motor Rifle Regiment
+
+![image](https://user-images.githubusercontent.com/34960418/160289483-fd9934bf-fca7-4026-9a50-5b068349319d.png)
+
+
+## T-72B also from its 752th MRR or its 237th Tank Regiment
+
+![image](https://user-images.githubusercontent.com/34960418/160289490-d55ea4dd-2b55-4b4b-8d1b-0ec24819cbe5.png)
+
+
+## Ural from its 252nd Motor Rifle Regt 
+
+![image](https://user-images.githubusercontent.com/34960418/160289506-b742a064-31bd-44e6-9937-bab3832a3cc6.png)
+
+
+## 2x KamAZ
+
+![image](https://user-images.githubusercontent.com/34960418/160289533-e5713e76-d8d6-460b-baff-5848a5f9997d.png)
+
+
+## 9S932T-1 Barnaul-T air defence management system from its 752 Motor Rifle Regt at 49.360896, 36.805530
+
+![image](https://user-images.githubusercontent.com/34960418/160289606-87c3ddee-8c5f-4aa3-98d1-9332523fabc4.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160289634-59e87dc9-0120-44c2-9bdb-a05a17cc3a5c.png)
+
+
+## TZM-T reloader for TOS-1A, attached from either 6 CBRN regiment or 27 CBRN brigade
+
+![image](https://user-images.githubusercontent.com/34960418/160289642-32238e25-1e1f-4aef-883a-e9fefcd7528e.png)
+
+
+## R-149 command-staff vehicle, possibly its BMRA variant
+
+![image](https://user-images.githubusercontent.com/34960418/160289741-7cf27aba-442b-4520-9f79-62a06200773b.png)
+
+
+## 2 x BTR-82A
+
+![image](https://user-images.githubusercontent.com/34960418/160289762-52114dd2-0dc2-4b2a-a16f-b1ec000cd130.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160289821-b905e75a-a4c0-41ab-9ab5-1e07dfc99611.png)
+
+
+
+## MT-LB from 237th Tank Regiment of 3rd Motor Rifle Div.
