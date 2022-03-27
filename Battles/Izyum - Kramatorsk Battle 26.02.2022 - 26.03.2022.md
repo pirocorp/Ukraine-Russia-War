@@ -131,6 +131,8 @@ Further lending that 1st battalion of 26th Grds Tank Regt is around Izyum are th
 ![image](https://user-images.githubusercontent.com/34960418/160283536-53bc2b86-4ca5-421d-a190-789b3b141172.png)
 
 
+# 17.03.22
+
 Despite failed crossing of Siverskyi Donets River, further east RuAF are south of river at Kam'yanka. Artillery strikes there (49.1067791, 37.2815292). Seems at least 8 vehicles destroyed. UAF still in Izyum but road cut off. 
 
 ![image](https://user-images.githubusercontent.com/34960418/160283911-94ad7f7b-5568-4314-87ab-1a299b6f2984.png)
@@ -143,6 +145,27 @@ Despite failed crossing of Siverskyi Donets River, further east RuAF are south o
 
 ![image](https://user-images.githubusercontent.com/34960418/160283891-aa096eef-20dc-4e67-8387-a7c80275a014.png)
 
+
+A wider RuAF grouping at Kamyanka, Izyum maybe smashed. 26th Guards Regt is in the area. UAF claim '437th Training Regt + battalion-tactical group of 26th tank regt, 47th tank div stopped'.
+
+Video from the Ukrainian military showing several destroyed or captured Russian BMP-3 and BMP-2 vehicles reportedly from Russia's 47th Tank Division in Kamyanka, Kharkiv. It looks like this happened near a pontoon bridge, possibly by anti-tank mines.
+
+https://user-images.githubusercontent.com/34960418/160284115-bc68fd4f-c1a9-49d7-8ffe-770577fde38d.mp4
+
+
+Another video from the same location shows the same BMP-2 as well as a R-149MA1 command-staff vehicle.
+
+https://user-images.githubusercontent.com/34960418/160284177-ba239844-ad5e-4390-992b-34a4b203633d.mp4
+
+
+Another video from the same location shows a destroyed MT-LB, probably a BMP-2, and a tank.
+
+https://user-images.githubusercontent.com/34960418/160284238-edab3669-162f-4caa-b13f-9730a97888bd.mp4
+
+
+Another video showing the destroyed Russian vehicles from the same location. Looks like 7 BMP-3 or more, MT-LB, BMP, truck, and a tank.
+
+https://user-images.githubusercontent.com/34960418/160284289-35d8629b-3653-4fb0-b125-ccf561fa5ff8.mp4
 
 
 
