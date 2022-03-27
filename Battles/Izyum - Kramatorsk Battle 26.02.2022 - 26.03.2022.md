@@ -67,10 +67,27 @@ https://user-images.githubusercontent.com/34960418/160282512-d3899da1-ceb8-45f0-
 
 UAF still hold the city south of Siverskyi Donets river. So as of 07/03 not fully captured, 81st not crushed, advance not progressing rapidly.
 
+
+# 12.03.22
+
 Still the UAF is undeniably under huge pressure around Izyum and suffering losses. Internet is reportedly interrupted but film that does get out shows huge devastation in some parts of the town.
+
+
+# 13.03.22
 
 Some of the devastation in Izyum has been from air strikes. Ukraine claimed one RuAF aircraft was downed. A 2nd film in link shows 2 parachutes so possibly a Su-30SM or Su-34.
 
 https://user-images.githubusercontent.com/34960418/160282713-0bbb4b0f-60e5-48f6-9267-fad087cd9b00.mp4
+
+
+# 14.03.22
+
+RuAF also reportedly used BM-30 Smerch MLRS near Izium.
+
+Russian UAV footage reportedly showing Smerch MLRS strikes in Izyum.
+
+https://user-images.githubusercontent.com/34960418/160282926-cb796dcd-25d8-45d4-8d0b-886649797493.mp4
+
+
 
 
