@@ -186,3 +186,18 @@ Kapytolivka, east of Izyum (north of the SD river). A RuAF tanker explains how a
 https://user-images.githubusercontent.com/34960418/160285154-1fcbe412-0080-4051-acc8-b2cedef58474.mp4
 
 
+# 18.03.22
+
+Video from Izyum and its surroundings. Clashes continue in the city between the Ukrainian Armed Forces and Russian troops.
+
+First scene in Izyum 49.19327, 37.25008, north of river.
+
+- BMP-1 north of town at 49.239601, 37.246058
+- unclear BMP (both BMPs unclear which side)
+- 2 x Destroyed RuAF BTR-82A
+
+https://user-images.githubusercontent.com/34960418/160285293-ec343dfc-8f1e-4422-9672-577905732228.mp4
+
+
+
+
