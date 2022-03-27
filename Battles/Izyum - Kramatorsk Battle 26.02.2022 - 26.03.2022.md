@@ -32,7 +32,32 @@ https://user-images.githubusercontent.com/34960418/160281836-921d913d-2139-4452-
 
 After the Russian entry into Kupiansk, some residents protested and attacked a RuAF SUV.
 
-https://user-images.githubusercontent.com/34960418/160281912-f8cc6579-1720-454c-9765-0c45e122dcc5.mp4
+https://user-images.githubusercontent.com/34960418/160282063-926d6654-c323-4959-bc14-186420927a70.mp4
 
+
+With terrain flat, open + hard to defend UAF pulled back to forests along Siverskyi Donets River.
+
+
+# 04.03.22
+
+RuAF reached Izyum outskirts.
+
+
+# 06.03.22
+
+Initial attacks are repulsed.
+
+2 Russian BTGs unsucessfully tried to capture the city of Izium. Then they resorted to the practice of shelling residential areas, firing from artillery almost all night with several air strikes.
+
+![image](https://user-images.githubusercontent.com/34960418/160282383-8190b923-0411-496b-8bbb-ba9f695e6658.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160282390-e3ddf500-7e90-436c-ac7b-ddfdc062bfbc.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160282393-819cd23b-cc40-42f2-b219-25cd2a0c2068.png)
+
+
+The main UAF unit covering the RuAF advance on Izyum is the 81st Separate Airmobile Brigade. However it  also has to cover a large frontage further east into NW Luhansk. Here they claimed the destruction of RuAF T-72BA or B3 near Izyum.
+
+https://user-images.githubusercontent.com/34960418/160282512-d3899da1-ceb8-45f0-a4cd-77c7934cc5f3.mp4
 
 
