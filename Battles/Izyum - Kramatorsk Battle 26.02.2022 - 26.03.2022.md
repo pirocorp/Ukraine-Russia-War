@@ -231,6 +231,8 @@ First this battalion CO in 144 Motor Rifle Division. Major Dmitry Toptun was a m
 
 ![image](https://user-images.githubusercontent.com/34960418/160287056-fbb61e22-aeb2-4398-8f61-d17106c35a23.png)
 
+![image](https://user-images.githubusercontent.com/34960418/160287208-a1f798bc-a654-42cc-b0d3-0156f64ceb71.png)
+
 
 Further to the deaths of the COs of an engineering bde + motor rifle battalion near Izyum, on 15/03/22 first reports of the death of CO of 252nd Motor Rifle Regiment (3rd Motorized Rifle Divi). The 3rd MRD are believed to be SE of Izyum.
 
