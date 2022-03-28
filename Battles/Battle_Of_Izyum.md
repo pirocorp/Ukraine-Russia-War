@@ -253,6 +253,11 @@ In regard to the two main bridges at Izyum believed destroyed or damaged by UAF 
 ![image](https://user-images.githubusercontent.com/34960418/160287520-be9fa2b7-acce-480f-9e26-d2fc036f7b48.png)
 
 
+Su-35 shoot down around Izyum
+
+https://user-images.githubusercontent.com/34960418/160385241-924d6c66-a711-4ebd-bbac-efc7972befdd.mp4
+
+
 Devastation in parts of the city
 
 https://user-images.githubusercontent.com/34960418/160287590-5b160f6f-02d8-44a8-9fb6-02136edba5f9.mp4
