@@ -265,6 +265,8 @@ https://user-images.githubusercontent.com/34960418/160287590-5b160f6f-02d8-44a8-
 
 # 27.03.22
 
+![image](https://user-images.githubusercontent.com/34960418/160394824-2498a95a-3780-48d0-b7be-7608f30e01b3.png)
+
 West of Izyum two BTGs from RuAF 3rd Motor Rifle Div + special forces reportedly lost 60 pieces of equipment at Husarivka, Kharkiv Obt. A battalion CO among casualties. 
 
 ![image](https://user-images.githubusercontent.com/34960418/160289700-aedd81e2-414b-4db6-af96-8b5a558d465e.png)
