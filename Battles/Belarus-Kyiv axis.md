@@ -41,3 +41,22 @@ A later film at same location shows some of the RuAF losses from the battle at t
 https://user-images.githubusercontent.com/34960418/160698024-b1a02389-84d6-489f-8e73-d85f0e4f2d9d.mp4
 
 
+# 26.02.22
+
+On 25/02/22, UAF destroyed a key bridge in Ivankiv on the Teteriv River. RuAF forces nevertheless bypassed Ivankiv continuing to Kyiv. RuAF entered Ivankiv on 26th but fighting continued in or around for a week. Here some 5th Guards Tank Brigade losses.
+
+Two Russian T-72B tanks and BTR-80 APC were destroyed during the attack on Russian troops in Ivankiv, north of Kyiv
+
+![image](https://user-images.githubusercontent.com/34960418/160698303-09faa2b5-2186-4368-b549-fd4eb291a6b2.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160698315-086fda7f-c994-4377-af1c-181742b2c1a5.png)
+
+
+Meanwhile to NW of Ivankiv elements of 29th Combined Army Army followed later. Its believed they will guard west flank of push to Kyiv.
+
+![image](https://user-images.githubusercontent.com/34960418/160698512-51aa8300-44b6-4c40-8a72-2bf83ab2a7ec.png)
+
+https://user-images.githubusercontent.com/34960418/160699066-21ce3328-28d2-439c-8852-68bd9408b82e.mp4
+
+https://www.youtube.com/watch?v=zurzhAKpI1g
+
