@@ -1,4 +1,4 @@
-# Battle of Izyum 26.02.2022 - continues
+# Izyum - Kramatorsk axis
 
 ![image](https://user-images.githubusercontent.com/34960418/160281637-4883827e-cffb-4873-abef-dfe87be7b771.png)
 
