@@ -60,3 +60,13 @@ https://user-images.githubusercontent.com/34960418/160699066-21ce3328-28d2-439c-
 
 https://www.youtube.com/watch?v=zurzhAKpI1g
 
+
+The camouflaged Buk air defence system in video is probably guarding this pontoon bridge shown in the film 500 meters to south. Its there as the UAF blew the bridge over the river Uzh also in the film, just west at 51.247799, 29.400913. Pontoon bridge is located just to the east 51.251168, 29.405085.
+
+![image](https://user-images.githubusercontent.com/34960418/160699672-a22a5c44-71e1-4fdc-a484-caaeb95f95b6.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160699725-7075c159-98f8-443b-b645-c58c2bd48ba9.png)
+
+https://user-images.githubusercontent.com/34960418/160700279-204f5c7b-cc0f-4851-8293-3621e4917529.mp4
+
+
