@@ -327,3 +327,11 @@ West of Izyum two BTGs from RuAF 3rd Motor Rifle Div + special forces reportedly
 ![image](https://user-images.githubusercontent.com/34960418/160289821-b905e75a-a4c0-41ab-9ab5-1e07dfc99611.png)
 
 ![image](https://user-images.githubusercontent.com/34960418/160289878-70b85838-6e06-4d78-a664-663fb9aef498.png)
+
+
+Also claims that UAF capture of Husarivka resulted in 100s of RuAF casualties many  reportedly by MLRS fire. Also we note this BTG marking from 20CAA was seen earlier so UAF 25th Air Bde may be on 2 fronts.
+
+![image](https://user-images.githubusercontent.com/34960418/160694291-1245492b-9f75-4f23-93e1-1d56fa81c0b7.png)
+
+![image](https://user-images.githubusercontent.com/34960418/160694304-c35ab016-f9f0-4adc-b60a-d1e48d9527c1.png)
+
