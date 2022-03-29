@@ -30,3 +30,9 @@ As RuAF approached Ivankiv UAF resistance stiffened including with armour. Here 
 
 https://user-images.githubusercontent.com/34960418/160696984-b52312a1-68c0-4cf6-9945-9b5ffab917e4.mp4
 
+
+A second enlarged film of same location in twt 4, shows 3 vehicles burning at the ring road junction NW of Ivankiv. Seems three more trucks are abandoned. There is a UAF T-64BV and a BMP-1 which fires and moves. Seems UAF hold the junction at this point
+
+https://user-images.githubusercontent.com/34960418/160697624-d82d8f05-10a2-41d8-914f-d0ecb8aa1b2c.mp4
+
+
