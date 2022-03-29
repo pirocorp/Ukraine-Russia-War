@@ -52,6 +52,8 @@ Two Russian T-72B tanks and BTR-80 APC were destroyed during the attack on Russi
 ![image](https://user-images.githubusercontent.com/34960418/160698315-086fda7f-c994-4377-af1c-181742b2c1a5.png)
 
 
+# 05.03.22
+
 Meanwhile to NW of Ivankiv elements of 29th Combined Army Army followed later. Its believed they will guard west flank of push to Kyiv.
 
 ![image](https://user-images.githubusercontent.com/34960418/160698512-51aa8300-44b6-4c40-8a72-2bf83ab2a7ec.png)
@@ -68,5 +70,12 @@ The camouflaged Buk air defence system in video is probably guarding this pontoo
 ![image](https://user-images.githubusercontent.com/34960418/160699725-7075c159-98f8-443b-b645-c58c2bd48ba9.png)
 
 https://user-images.githubusercontent.com/34960418/160700279-204f5c7b-cc0f-4851-8293-3621e4917529.mp4
+
+
+# 19.03.22
+
+I guess the bridge in twt 8 might be targeted by air or artillery. But if UAF was to go sneaky on it, be aware there is a BMP-1 + squad from 69 Covering Brigade at 51.253337, 29.404691 also T-72B3 nearby. Elsewhere a TOS-1A + TZM-T.
+
+https://user-images.githubusercontent.com/34960418/160701126-01280ea0-530e-4348-9421-62e0e504a90f.mp4
 
 
