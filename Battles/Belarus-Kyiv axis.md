@@ -74,7 +74,7 @@ https://user-images.githubusercontent.com/34960418/160700279-204f5c7b-cc0f-4851-
 
 # 19.03.22
 
-I guess the bridge in twt 8 might be targeted by air or artillery. But if UAF was to go sneaky on it, be aware there is a BMP-1 + squad from 69 Covering Brigade at 51.253337, 29.404691 also T-72B3 nearby. Elsewhere a TOS-1A + TZM-T.
+I guess the bridge might be targeted by air or artillery. But if UAF was to go sneaky on it, be aware there is a BMP-1 + squad from 69 Covering Brigade at 51.253337, 29.404691 also T-72B3 nearby. Elsewhere a TOS-1A + TZM-T.
 
 https://user-images.githubusercontent.com/34960418/160701126-01280ea0-530e-4348-9421-62e0e504a90f.mp4
 
