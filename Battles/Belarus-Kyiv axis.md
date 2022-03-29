@@ -36,3 +36,8 @@ A second enlarged film of same location in twt 4, shows 3 vehicles burning at th
 https://user-images.githubusercontent.com/34960418/160697624-d82d8f05-10a2-41d8-914f-d0ecb8aa1b2c.mp4
 
 
+A later film at same location shows some of the RuAF losses from the battle at this junction north west of Ivankiv. In the background: BTR-80 (probably), 3 burnt out trucks, an abandoned/damaged Ural and a seemingly abandoned KamAZ.
+
+https://user-images.githubusercontent.com/34960418/160698024-b1a02389-84d6-489f-8e73-d85f0e4f2d9d.mp4
+
+
