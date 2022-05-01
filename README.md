@@ -1,3 +1,12 @@
+
+# Jump to WAR days
+
+- [February 2022](/02.2022)
+- [March 2022](/03.2022)
+- [April 2022](/04.2022)
+- [May 2022](/05.2022)
+
+
 # Days before the war
 
 # 21.20.2022
@@ -97,11 +106,3 @@ Location of invading Russian forces. Border post cameras have been disabled Crim
 
 
 https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-bf7c-491ca5c22fb1.mp4
-
-
-# WAR
-
-- [February 2022](/02.2022)
-- [March 2022](/03.2022)
-- [April 2022](/04.2022)
-
