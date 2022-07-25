@@ -39,10 +39,20 @@ Russian Military Installations v1.4 - Western Military District, Northern Fleet 
 - http://www.radioscanner.ru/
 - https://vk.com/
 
-
 Special thanks to Covert Cabal (https://www.youtube.com/c/CovertCabal) & Gerben Bakker for providing their databases to me.
 
 
 # Getting started:
 
 Open ```RMIv1.4.kmz``` with Google Earth
+
+
+# Screenshots
+
+![image](https://user-images.githubusercontent.com/34960418/180868860-02a334c8-669c-4afe-bd52-12f45e60dcf9.png)
+
+![image](https://user-images.githubusercontent.com/34960418/180868876-9f4d8029-60b9-4990-89b3-8502033f9792.png)
+
+![image](https://user-images.githubusercontent.com/34960418/180868901-53a1f7fa-7e04-46c5-91ea-25d49afdeac9.png)
+
+![image](https://user-images.githubusercontent.com/34960418/180868915-4b2932be-eee4-47bb-8ebe-37619a342408.png)
