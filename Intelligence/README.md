@@ -22,19 +22,19 @@ Marked by X - Unallocated Air Defense Radars/Radio-Technical Units
 
 # Sources used:
 
-http://milkavkaz.com/index.php
-https://voinskayachast.net/
-http://wikimapia.org/
-https://www.cia.gov/library/readingroom/home
-https://www.valisluureamet.ee/pdf/raport-2019-ENG-web.pdf
-http://www.understandingwar.org/report/russias-military-posture
-https://www.osw.waw.pl/pl/publikacje/raport-osw/2019-11-07/twierdza-kaliningrad
-https://www.numbers-stations.com/
-http://priyom.org/
-https://ru.wikipedia.org
-https://en.wikipedia.org
-http://www.radioscanner.ru/
-https://vk.com/
+- http://milkavkaz.com/index.php
+- https://voinskayachast.net/
+- http://wikimapia.org/
+- https://www.cia.gov/library/readingroom/home
+- https://www.valisluureamet.ee/pdf/raport-2019-ENG-web.pdf
+- http://www.understandingwar.org/report/russias-military-posture
+- https://www.osw.waw.pl/pl/publikacje/raport-osw/2019-11-07/twierdza-kaliningrad
+- https://www.numbers-stations.com/
+- http://priyom.org/
+- https://ru.wikipedia.org
+- https://en.wikipedia.org
+- http://www.radioscanner.ru/
+- https://vk.com/
 
 
 Special thanks to Covert Cabal (https://www.youtube.com/c/CovertCabal) & Gerben Bakker for providing their databases to me.
