@@ -11,7 +11,7 @@ Russian Military Installations v1.4 - Western Military District, Northern Fleet 
 - Crimson - Strategic Missile Forces units
 
 
-# Notes
+# Notes:
 
 - Marked by no.3 - Air Bases
 - Marked by no.5 - Units identified and integrated with the chain of command (in every branch).
@@ -42,3 +42,7 @@ Russian Military Installations v1.4 - Western Military District, Northern Fleet 
 
 Special thanks to Covert Cabal (https://www.youtube.com/c/CovertCabal) & Gerben Bakker for providing their databases to me.
 
+
+# How to use it
+
+Open ```RMIv1.4.kmz``` with Google Earth
