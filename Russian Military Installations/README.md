@@ -43,6 +43,6 @@ Russian Military Installations v1.4 - Western Military District, Northern Fleet 
 Special thanks to Covert Cabal (https://www.youtube.com/c/CovertCabal) & Gerben Bakker for providing their databases to me.
 
 
-# How to use it
+# Getting started:
 
 Open ```RMIv1.4.kmz``` with Google Earth
