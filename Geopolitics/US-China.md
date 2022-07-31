@@ -79,3 +79,8 @@ ZHONG HUA FU XING appears to normally operate on a route between Dalian and Yant
 
 
 ## To be sure, these ferries alone cannot carry a large enough force to invade Taiwan itself, and the rest of China's ferries appear to be on their normal routes for now. But perhaps they could carry enough to assist in seizure of a smaller island. I guess we'll see...
+
+
+## 31.07.2022
+
+![image](https://user-images.githubusercontent.com/34960418/182024843-3da33acf-3c2e-4617-8a4e-5e2d942f272b.png)
