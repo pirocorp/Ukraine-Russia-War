@@ -99,3 +99,10 @@ https://user-images.githubusercontent.com/34960418/182029038-b0a9d437-96d6-44e5-
 
 
 ## Switzerland says it would follow EU sanctions on China if it invades Taiwan 
+
+
+# 01.08.2022
+
+## The Pentagon has begun deploying additional forces to Taiwan, including a nuclear-powered aircraft carrier and refueling planes
+
+![image](https://user-images.githubusercontent.com/34960418/182228644-5f8168e6-1209-4366-a5a4-e2fb4fac4735.png)
