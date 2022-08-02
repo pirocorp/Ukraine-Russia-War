@@ -106,3 +106,81 @@ https://user-images.githubusercontent.com/34960418/182029038-b0a9d437-96d6-44e5-
 ## The Pentagon has begun deploying additional forces to Taiwan, including a nuclear-powered aircraft carrier and refueling planes
 
 ![image](https://user-images.githubusercontent.com/34960418/182228644-5f8168e6-1209-4366-a5a4-e2fb4fac4735.png)
+
+
+## China has closed its airspace in the direction of the Taiwan Strait to civilian aircraft, air defense systems at Taipei Airport are on high alert.
+
+![image](https://user-images.githubusercontent.com/34960418/182400325-848974bc-1352-4165-81e8-edc6806df97e.png)
+
+
+# 02.08.2022
+
+## Satellite capture PLA aircraft carrier and amphibious assault ship leave port
+
+![image](https://user-images.githubusercontent.com/34960418/182402359-a19fe1d7-7d08-4d3a-ab63-42ac3e6992a0.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182402383-96c9f519-ac11-4b98-bfc0-5b60c1300216.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182402423-2ed84119-b160-4c7d-865c-7a4d46ee3349.png)
+
+
+## Geolocation 21.8373°, 111.8545° of an undated video of a presumed HQ-22 battery moving north up the S21 (west of Yanjiang) towards the G15 interchange.
+
+![image](https://user-images.githubusercontent.com/34960418/182402515-064e268c-136f-494b-9c40-3f53adf02ccc.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182402529-aefb74d7-fc20-452c-b870-1855563e0d97.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182402546-1cacecb7-08ae-4110-ac6e-48868576deaa.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182402571-0869b82b-7f48-4b3e-983d-8aa3627a487d.png)
+
+
+## Geolocation 24.498559°, 118.056955° facing east. The 🇨🇳 PLA vehicles are moving from Xiamen City, Fujian across the Haicang Bridge. Away from Kinmen County
+
+https://user-images.githubusercontent.com/34960418/182402889-5433b32a-ce74-48ae-805e-54cb195586de.mp4
+
+
+##  Apparent confirmation that SPAR19 is actually heading to Taipei from an ACARS message that was ust sent! Mission controllers asking about IFF encryption also included the flight's destination of 'RCSS' which is Taipei Songshan Airport 
+
+![image](https://user-images.githubusercontent.com/34960418/182403105-da195421-b948-4c8d-9dcf-54ab0e819e67.png)
+
+
+## Nimitz-class aircraft carrier USS Ronald Reagan (CVN-76) operating east of Taiwan currently.
+
+![image](https://user-images.githubusercontent.com/34960418/182403201-56fe54c3-88e9-436e-b4fe-d413230cfa47.png)
+
+
+## US Air Force Rivet Joint signals intelligence aircraft appears to be making long racetracks up the Taiwan Strait and between Okinawa and the north end of the strait (DEVG - ADSBx) C-135V 64-14843 #AE01C5
+
+![image](https://user-images.githubusercontent.com/34960418/182404366-057cf283-9233-4600-9125-935b14505845.png)
+
+
+## Type 96 MBTs fit in as part of a combined arms battalion, which then is part of a combined arms brigade. Each battalion would have 28 Type 96 tanks between two companies. Chinese PLA Type 96 tanks arriving to Xiamen across the strait from Taiwan.
+
+![image](https://user-images.githubusercontent.com/34960418/182404723-5e692aed-51a1-4309-be58-30e1a301add3.png)
+
+
+## 15:20 GMT
+
+SPAR19 has officially entered Taiwanese airspace. This is the plane carrying Nancy Pelosi.
+
+![image](https://user-images.githubusercontent.com/34960418/182399928-4b33e501-25b8-4e1e-81cc-5e19dedb2b97.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182402041-23c0085c-c3ce-4447-a06d-9e9e0df0c9dd.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182405519-8ce71cce-e26e-48ab-b8c1-9fbd12fce7ef.png)
+
+https://user-images.githubusercontent.com/34960418/182405598-ac01477d-6759-4022-9557-cf839200a670.mp4
+
+https://user-images.githubusercontent.com/34960418/182406219-f7181a43-adf3-467b-a54b-553d66b5139a.mp4
+
+
+Taipei residents gather around "Songshan" Airport  waiting for Pelosi's special flight to land.
+
+https://user-images.githubusercontent.com/34960418/182400762-8c6edded-dfbe-437d-a0be-547aac186bec.mp4
+
+
+## 16:00 - Chinese Media is reporting that China's Su-35 fighter jets are crossing the Taiwan Straits. Chinese Armoured vehicles in Fuijan, China
+
+https://user-images.githubusercontent.com/34960418/182405129-1c9c3629-7343-4771-a9a0-24a6056cadf8.mp4
+
