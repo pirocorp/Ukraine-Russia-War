@@ -115,6 +115,8 @@ https://user-images.githubusercontent.com/34960418/182029038-b0a9d437-96d6-44e5-
 
 # 02.08.2022
 
+https://user-images.githubusercontent.com/34960418/182410028-40b62887-e259-4ef5-9d9e-b209a698f63a.mp4
+
 ## Satellite capture PLA aircraft carrier and amphibious assault ship leave port
 
 ![image](https://user-images.githubusercontent.com/34960418/182402359-a19fe1d7-7d08-4d3a-ab63-42ac3e6992a0.png)
@@ -179,8 +181,4 @@ Taipei residents gather around "Songshan" Airport  waiting for Pelosi's special 
 
 https://user-images.githubusercontent.com/34960418/182400762-8c6edded-dfbe-437d-a0be-547aac186bec.mp4
 
-
-## 16:00 - Chinese Media is reporting that China's Su-35 fighter jets are crossing the Taiwan Straits. Chinese Armoured vehicles in Fuijan, China
-
-https://user-images.githubusercontent.com/34960418/182405129-1c9c3629-7343-4771-a9a0-24a6056cadf8.mp4
 
