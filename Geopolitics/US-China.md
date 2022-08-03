@@ -182,3 +182,8 @@ Taipei residents gather around "Songshan" Airport  waiting for Pelosi's special 
 https://user-images.githubusercontent.com/34960418/182400762-8c6edded-dfbe-437d-a0be-547aac186bec.mp4
 
 
+# 03.08.2022
+
+## Live-fire exercises
+
+![image](https://user-images.githubusercontent.com/34960418/182692822-4531fdf9-11c3-4f04-b3c2-fd2de75ed5cf.png)
