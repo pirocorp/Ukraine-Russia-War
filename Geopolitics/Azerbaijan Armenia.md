@@ -14,3 +14,5 @@ https://user-images.githubusercontent.com/34960418/182681728-00d65b2a-c345-43e8-
 
 https://user-images.githubusercontent.com/34960418/182681948-f78938e4-fab0-4762-9766-4ffd1b2a853e.mp4
 
+
+## Military mobilization in Nagorno-Karabakh after the resumption of hostilities between Azerbaijan and Armenia
