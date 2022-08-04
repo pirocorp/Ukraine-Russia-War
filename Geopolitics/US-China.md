@@ -198,14 +198,24 @@ Location (as of yesterday) of 3 US Navy carrier/expeditionary strike groups—US
 
 ![image](https://user-images.githubusercontent.com/34960418/182825658-7d46632d-87cf-46d2-b203-abbfa1ec27a3.png)
 
+![image](https://user-images.githubusercontent.com/34960418/182829956-8f89c1a5-ec60-452f-9992-43dfe850325d.png)
+
+![image](https://user-images.githubusercontent.com/34960418/182831826-e154c3ac-fe7d-4adb-9f6e-6fa6a8d3220a.png)
+
 
 ## Media in China releases footage of missiles fired towards Taiwan today along with the alleged impact points east of the country 
 
 https://user-images.githubusercontent.com/34960418/182824797-0fba20b6-ef10-4746-b67b-8647fcfafcd8.mp4
-
 
 Additional note: I do believe we'd seen a different reaction from Taiwan if ballistic missiles had actually overflown the island. 
 
 So despite Chinese state media graphics, I don't think any such launches have been made yet.
 
 ![image](https://user-images.githubusercontent.com/34960418/182824873-8d817c07-4f17-4bdd-a644-6c2bd3165a5a.png)
+
+
+## Chinese military helicopters fly past Pingtan island, one of mainland China's closest points to Taiwan, in Fujian province on Thursday
+
+https://user-images.githubusercontent.com/34960418/182828339-a3a6006d-51c8-4258-90c0-4dbdf8ede268.mp4
+
+
