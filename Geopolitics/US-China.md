@@ -191,6 +191,14 @@ https://user-images.githubusercontent.com/34960418/182400762-8c6edded-dfbe-437d-
 
 # 04.08.2022
 
+
+## Situation
+
+Location (as of yesterday) of 3 US Navy carrier/expeditionary strike groups—USS Ronald Reagan, USS Tripoli & USS America —currently operating in Asian waters around Taiwan.  Map also shows the locations of the 2 Chinese PLA Navy carriers: Liaoning & Shandong.
+
+![image](https://user-images.githubusercontent.com/34960418/182825658-7d46632d-87cf-46d2-b203-abbfa1ec27a3.png)
+
+
 ## Media in China releases footage of missiles fired towards Taiwan today along with the alleged impact points east of the country 
 
 https://user-images.githubusercontent.com/34960418/182824797-0fba20b6-ef10-4746-b67b-8647fcfafcd8.mp4
