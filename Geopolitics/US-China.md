@@ -187,3 +187,17 @@ https://user-images.githubusercontent.com/34960418/182400762-8c6edded-dfbe-437d-
 ## Live-fire exercises
 
 ![image](https://user-images.githubusercontent.com/34960418/182692822-4531fdf9-11c3-4f04-b3c2-fd2de75ed5cf.png)
+
+
+# 04.08.2022
+
+## Media in China releases footage of missiles fired towards Taiwan today along with the alleged impact points east of the country 
+
+https://user-images.githubusercontent.com/34960418/182824797-0fba20b6-ef10-4746-b67b-8647fcfafcd8.mp4
+
+
+Additional note: I do believe we'd seen a different reaction from Taiwan if ballistic missiles had actually overflown the island. 
+
+So despite Chinese state media graphics, I don't think any such launches have been made yet.
+
+![image](https://user-images.githubusercontent.com/34960418/182824873-8d817c07-4f17-4bdd-a644-6c2bd3165a5a.png)
