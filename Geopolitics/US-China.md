@@ -241,3 +241,12 @@ Beijing announced that it was halting cooperation with the United States in a nu
 ## Taiwanese Navy here getting a bit of a workout shadowing multiple PLAN vessels. Numbers still very moderate though.
 
 ![image](https://user-images.githubusercontent.com/34960418/183083463-721a1cdf-bca1-41a8-8f5b-e649650333dc.png)
+
+
+## Not sure we had larger Taiwanese and PLAN combatants so close together before but here we are anyway. PLAN 052C destroyer Changchun escorted by RoCN Cheng Kung (OHP) frigate.
+
+![image](https://user-images.githubusercontent.com/34960418/183084380-c4abab0a-9deb-49ca-8f8a-36ae782c9952.png)
+
+![image](https://user-images.githubusercontent.com/34960418/183084392-f0c08c85-557e-4032-a880-fc19e798911d.png)
+
+![image](https://user-images.githubusercontent.com/34960418/183084407-a59dd02f-823e-4ca2-9276-20f031056cae.png)
