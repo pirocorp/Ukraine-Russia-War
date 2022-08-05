@@ -191,7 +191,6 @@ https://user-images.githubusercontent.com/34960418/182400762-8c6edded-dfbe-437d-
 
 # 04.08.2022
 
-
 ## Situation
 
 Location (as of yesterday) of 3 US Navy carrier/expeditionary strike groups—USS Ronald Reagan, USS Tripoli & USS America —currently operating in Asian waters around Taiwan.  Map also shows the locations of the 2 Chinese PLA Navy carriers: Liaoning & Shandong.
@@ -218,4 +217,23 @@ So despite Chinese state media graphics, I don't think any such launches have be
 
 https://user-images.githubusercontent.com/34960418/182828339-a3a6006d-51c8-4258-90c0-4dbdf8ede268.mp4
 
+
+# 05.08.2022
+
+## Comparing China’s 1995/1996 live fire exercises during the Third Taiwan Strait Crisis (up) and with those just announced for August 2022 (down)
+
+![image](https://user-images.githubusercontent.com/34960418/183077168-6c632407-38cc-4c1b-b8f8-6a18860d3bb0.png)
+
+![image](https://user-images.githubusercontent.com/34960418/183077183-1a2f8658-dc2d-4b4b-923b-2001e7322761.png)
+
+Taiwan's MoD says on Wednesday night, multiple unidentified aircraft, likely drones, flew above the Kinmen Island. Taiwan fired flares to drive them away
+
+
+## 1 of the ballistic missiles that fell in Japan's EEZ crossed over Taiwan, presumably in the vicinity of Taipei, graph released by Japan's MoD shows
+
+![image](https://user-images.githubusercontent.com/34960418/183077345-baaa7c38-1631-47f2-b976-a08d5852f04a.png)
+
+![image](https://user-images.githubusercontent.com/34960418/183077446-f771bc82-1b32-462f-b8bd-83b6782247b4.png)
+
+Beijing announced that it was halting cooperation with the United States in a number of areas, including dialogue between senior-level military commanders, in retaliation for the visit this week to Taiwan by U.S. House Speaker Nancy Pelosi
 
