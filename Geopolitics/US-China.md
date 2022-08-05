@@ -237,3 +237,7 @@ Taiwan's MoD says on Wednesday night, multiple unidentified aircraft, likely dro
 
 Beijing announced that it was halting cooperation with the United States in a number of areas, including dialogue between senior-level military commanders, in retaliation for the visit this week to Taiwan by U.S. House Speaker Nancy Pelosi
 
+
+## Taiwanese Navy here getting a bit of a workout shadowing multiple PLAN vessels. Numbers still very moderate though.
+
+![image](https://user-images.githubusercontent.com/34960418/183083463-721a1cdf-bca1-41a8-8f5b-e649650333dc.png)
