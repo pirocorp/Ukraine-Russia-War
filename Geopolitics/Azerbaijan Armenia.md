@@ -22,3 +22,18 @@ According to some reports, villages Sarı baba, Əvəşti и Narinçilar were ca
 ![image](https://user-images.githubusercontent.com/34960418/182690153-7319e525-1505-4145-bfa9-6c7ed961e0c6.png)
 
 ![image](https://user-images.githubusercontent.com/34960418/182690169-cf132c04-1eb5-480b-a297-2ba5a2707f97.png)
+
+
+# 06.08.2022
+
+## This is reportedly one of the Armenian-Russian positions that was captured by Azerbaijani Commando units 3 days ago in the Karabakh region. 
+
+As seen, Armenian separatist soldiers and Russian “Peacekeepers” were stationed together in violation of the 2020 trilateral agreement. 39°42'24"N 46°35'55"E
+
+![image](https://user-images.githubusercontent.com/34960418/183260626-c95a7262-5c5b-46cd-b59a-4538168f92d2.png)
+
+![image](https://user-images.githubusercontent.com/34960418/183260630-a5535708-d0be-4ff9-869d-d4081b6b5be0.png)
+
+![image](https://user-images.githubusercontent.com/34960418/183260634-d5c4a3b9-9ce9-49cf-9cf4-4692e426935a.png)
+
+![image](https://user-images.githubusercontent.com/34960418/183260638-e8b52dd8-a892-443e-86f2-449586bccda7.png)
