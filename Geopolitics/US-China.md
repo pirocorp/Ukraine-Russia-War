@@ -262,3 +262,8 @@ Beijing announced that it was halting cooperation with the United States in a nu
 ## Continued monitoring of the #China's military drills around #Taiwan shows more naval activity south of the Island earlier today #ChinaTaiwan
 
 ![image](https://user-images.githubusercontent.com/34960418/183262913-6ec6dba3-9ee6-4bc3-a53c-95a660aa7753.png)
+
+
+## Imagery From The Taiwan Strait Earlier Today Shows Two Possible Naval Vessels Visible Within The Danger Zone, Both Sailing Parallel To Each Other Across The Median Line On The Taiwanese Side
+
+![image](https://user-images.githubusercontent.com/34960418/183263105-b68d8bcf-1c96-4338-b293-35f25cb8d428.png)
