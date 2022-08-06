@@ -255,3 +255,10 @@ Beijing announced that it was halting cooperation with the United States in a nu
 ## PLA Exercises Day 2: US military strengthens aerial ISR operations around Taiwan island, at least 1 RC-135S, 1 RC-135V, 3 P-8As, 1 E-3G, 1 U-2S are on the spot, supported by 6 KC-135 tankers, August 5
 
 ![image](https://user-images.githubusercontent.com/34960418/183087848-6239cc54-623e-43b1-946a-051f2e20d6b5.png)
+
+
+# 06.08.2022
+
+## Continued monitoring of the #China's military drills around #Taiwan shows more naval activity south of the Island earlier today #ChinaTaiwan
+
+![image](https://user-images.githubusercontent.com/34960418/183262913-6ec6dba3-9ee6-4bc3-a53c-95a660aa7753.png)
