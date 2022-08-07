@@ -267,3 +267,8 @@ Beijing announced that it was halting cooperation with the United States in a nu
 ## Imagery From The Taiwan Strait Earlier Today Shows Two Possible Naval Vessels Visible Within The Danger Zone, Both Sailing Parallel To Each Other Across The Median Line On The Taiwanese Side
 
 ![image](https://user-images.githubusercontent.com/34960418/183263105-b68d8bcf-1c96-4338-b293-35f25cb8d428.png)
+
+
+# 07.08.2022
+
+![image](https://user-images.githubusercontent.com/34960418/183311475-c68c0a3b-3aec-44e5-a0bb-6c8cce66b153.png)
