@@ -272,3 +272,17 @@ Beijing announced that it was halting cooperation with the United States in a nu
 # 07.08.2022
 
 ![image](https://user-images.githubusercontent.com/34960418/183311475-c68c0a3b-3aec-44e5-a0bb-6c8cce66b153.png)
+
+
+# 08.08.2022
+
+## PLAN vessels and 39 PLA aircraft around our surrounding region were detected today (August 8, 2022) until 1700(GMT+8). #ROCArmedForces have monitored the situation and responded to these activities with aircraft in CAP, naval vessels, and land-based missile systems.
+
+![image](https://user-images.githubusercontent.com/34960418/183488840-8dcc3b3a-7be2-498a-a372-de1396d8f772.png)
+
+
+## Some indications are there are still PLA ships east of Taiwan, though it is unclear types or numbers from commercial satellite imagery
+
+![image](https://user-images.githubusercontent.com/34960418/183489012-3f8fe1c9-2e1c-4dd4-972f-467d0090cfdf.png)
+
+
