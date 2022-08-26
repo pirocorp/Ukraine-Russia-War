@@ -37,3 +37,12 @@ As seen, Armenian separatist soldiers and Russian “Peacekeepers” were statio
 ![image](https://user-images.githubusercontent.com/34960418/183260634-d5c4a3b9-9ce9-49cf-9cf4-4692e426935a.png)
 
 ![image](https://user-images.githubusercontent.com/34960418/183260638-e8b52dd8-a892-443e-86f2-449586bccda7.png)
+
+
+# 26.08.2022
+
+## Azerbaijan Ministry of Defense footage showing its forces entering village of Zabux at the entrance to the Lachin Corridor, Azerbaijan also took control of Lachin city.
+
+https://user-images.githubusercontent.com/34960418/186965137-321c9c55-3536-4635-83be-c266f78be04f.mp4
+
+
