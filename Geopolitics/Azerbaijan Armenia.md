@@ -46,3 +46,12 @@ As seen, Armenian separatist soldiers and Russian “Peacekeepers” were statio
 https://user-images.githubusercontent.com/34960418/186965137-321c9c55-3536-4635-83be-c266f78be04f.mp4
 
 
+
+# 13.09.2022
+
+## Azerbaijani Armed Forces began intensive shelling of Armenian positions
+
+https://user-images.githubusercontent.com/34960418/189767626-43f40af0-8254-436e-b9d0-5b70e614b572.mp4
+
+https://user-images.githubusercontent.com/34960418/189767616-89b4c81c-fe4f-48e8-8954-4c1b2b2fef49.mp4
+
