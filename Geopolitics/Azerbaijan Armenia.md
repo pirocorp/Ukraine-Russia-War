@@ -53,5 +53,10 @@ https://user-images.githubusercontent.com/34960418/186965137-321c9c55-3536-4635-
 
 https://user-images.githubusercontent.com/34960418/189767626-43f40af0-8254-436e-b9d0-5b70e614b572.mp4
 
+
+Multiple Armenian Artillery and S-300 Air Defenses Systems as well as a number of Azerbaijani Aircraft have all reportedly been destroyed in the Extremely Heavy Fighting that began between the 2 Countries only around an hour ago, I expect a large number of Casualties as well.
+
 https://user-images.githubusercontent.com/34960418/189767616-89b4c81c-fe4f-48e8-8954-4c1b2b2fef49.mp4
 
+
+Russian Sources are also reporting that due to the Heavy Fighting the Russian 102nd Military Base in Gyumri, Armenia has been put on High Alert tonight, possibly expecting Azerbaijani Air Strikes on the Base as has been seen at Armenian Bases near the Point-of-Contact.
