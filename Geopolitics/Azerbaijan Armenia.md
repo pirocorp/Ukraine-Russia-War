@@ -85,3 +85,8 @@ https://user-images.githubusercontent.com/34960418/189996416-29ff0e7e-de3d-413e-
 https://user-images.githubusercontent.com/34960418/189996254-0c60bd78-05e4-4c6a-bdab-355ba971edff.mp4
 
 
+Map circulating media suggests zone of clashes along the 🇦🇿-🇦🇲 borders.
+
+![image](https://user-images.githubusercontent.com/34960418/190000931-5b816c75-507d-4c6a-8514-2d91eebbedde.png)
+
+![image](https://user-images.githubusercontent.com/34960418/190000956-9d59507a-45ff-4ac6-a474-0e3d53cff042.png)
