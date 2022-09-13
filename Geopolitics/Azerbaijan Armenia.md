@@ -68,3 +68,8 @@ Armenian MOD: "On September 13, at 00:05, units of the Azerbaijani Armed Forces 
 https://user-images.githubusercontent.com/34960418/189768334-e840dc9a-2747-4d5a-8eeb-d27070a962d7.mp4
 
 
+Sotk Armenia Military unit completely destroyed according to the reports.
+
+![image](https://user-images.githubusercontent.com/34960418/189966653-5d671f52-3cf1-4072-801e-2e9604cd6a0c.png)
+
+
