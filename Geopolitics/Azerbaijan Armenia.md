@@ -78,3 +78,10 @@ Armenia's border city of Jermuk as clashes between Armenian and Azerbaijan conti
 https://user-images.githubusercontent.com/34960418/189990042-271616ff-d9ce-48f9-a054-e61a97f721cc.mp4
 
 
+Azerbaijanian Bayraktar TB2 strike targeting an Armenian position.
+
+https://user-images.githubusercontent.com/34960418/189996416-29ff0e7e-de3d-413e-870f-822fba3bf936.mp4
+
+https://user-images.githubusercontent.com/34960418/189996254-0c60bd78-05e4-4c6a-bdab-355ba971edff.mp4
+
+
