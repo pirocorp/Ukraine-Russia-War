@@ -73,3 +73,8 @@ Sotk Armenia Military unit completely destroyed according to the reports.
 ![image](https://user-images.githubusercontent.com/34960418/189966653-5d671f52-3cf1-4072-801e-2e9604cd6a0c.png)
 
 
+Armenia's border city of Jermuk as clashes between Armenian and Azerbaijan continue.
+
+https://user-images.githubusercontent.com/34960418/189990042-271616ff-d9ce-48f9-a054-e61a97f721cc.mp4
+
+
