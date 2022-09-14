@@ -90,3 +90,20 @@ Map circulating media suggests zone of clashes along the 🇦🇿-🇦🇲 borde
 ![image](https://user-images.githubusercontent.com/34960418/190000931-5b816c75-507d-4c6a-8514-2d91eebbedde.png)
 
 ![image](https://user-images.githubusercontent.com/34960418/190000956-9d59507a-45ff-4ac6-a474-0e3d53cff042.png)
+
+
+# 14.09.2022
+
+![image](https://user-images.githubusercontent.com/34960418/190234444-6b208043-a35e-43bd-9ce6-e4aa92d4edcf.png)
+
+
+Multiple Armenian Towns including the City of Jermuk are now reportedly under Heavy Assault from Azerbaijani Artillery and Ground Forces who have advanced around 5 Miles into the Country in multiple areas, Armenian Forces are attempting to hold Defensive Positions along the LoC.
+
+![image](https://user-images.githubusercontent.com/34960418/190236575-96554759-ba97-401d-b80b-be0495b39543.png)
+
+
+Alliances in the Caucasus are complicated. Christian Armenians raise the Iranian flag, while Shiite Muslim Azerbaijanis wave the Israeli flag.
+
+https://user-images.githubusercontent.com/34960418/190237781-41c646a5-b823-4445-84ab-7a4258252ecd.mp4
+
+
