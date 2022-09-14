@@ -107,3 +107,8 @@ Alliances in the Caucasus are complicated. Christian Armenians raise the Iranian
 https://user-images.githubusercontent.com/34960418/190237781-41c646a5-b823-4445-84ab-7a4258252ecd.mp4
 
 
+Damaged and abondoned RF column in Verin Shorja.
+
+https://user-images.githubusercontent.com/34960418/190244526-fa3eb6c2-5c4f-4238-a22c-7d0d48a0d930.mp4
+
+
