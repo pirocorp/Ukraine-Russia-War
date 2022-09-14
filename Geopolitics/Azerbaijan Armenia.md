@@ -112,3 +112,8 @@ Damaged and abondoned RF column in Verin Shorja.
 https://user-images.githubusercontent.com/34960418/190244526-fa3eb6c2-5c4f-4238-a22c-7d0d48a0d930.mp4
 
 
+New 🇦🇿 Bayraktar TB2 drone footage striking 🇦🇲 towed howitzer.
+
+https://user-images.githubusercontent.com/34960418/190262034-fe9d5fb0-0ee4-46ee-a8de-1210b7a99988.mp4
+
+
