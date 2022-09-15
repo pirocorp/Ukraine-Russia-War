@@ -117,3 +117,8 @@ New 🇦🇿 Bayraktar TB2 drone footage striking 🇦🇲 towed howitzer.
 https://user-images.githubusercontent.com/34960418/190262034-fe9d5fb0-0ee4-46ee-a8de-1210b7a99988.mp4
 
 
+A large military base of the Armenian Army, located in the village of Sotk in Armenia, was destroyed by the precise Azerbaijani Army strikes.
+
+https://user-images.githubusercontent.com/34960418/190469499-1befa8df-b217-4966-8d14-e833ef24016a.mp4
+
+
