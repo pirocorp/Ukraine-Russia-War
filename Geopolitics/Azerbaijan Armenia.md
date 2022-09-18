@@ -122,3 +122,20 @@ A large military base of the Armenian Army, located in the village of Sotk in Ar
 https://user-images.githubusercontent.com/34960418/190469499-1befa8df-b217-4966-8d14-e833ef24016a.mp4
 
 
+# 18.09.2022
+
+A rally for Armenia's withdrawal from the CSTO is taking place on France Square in Yerevan.
+
+![image](https://user-images.githubusercontent.com/34960418/190911200-bf1407ea-3878-475b-8c1c-911c0951206e.png)
+
+![image](https://user-images.githubusercontent.com/34960418/190911212-620b2b62-34fe-47f7-a270-220e4fc642a4.png)
+
+![image](https://user-images.githubusercontent.com/34960418/190911208-53968294-85a6-42ce-ae5c-d5f69f50624f.png)
+
+![image](https://user-images.githubusercontent.com/34960418/190911205-1fc392c2-60e1-4192-b132-6029c0a03f61.png)
+
+https://user-images.githubusercontent.com/34960418/190911173-6f4c7ddc-5022-4bfe-9b29-5025ec5bc3f3.mp4
+
+
+
+
