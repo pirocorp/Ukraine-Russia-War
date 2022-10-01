@@ -9,6 +9,7 @@
 - [July 2022](/07.2022)
 - [August 2022](/08.2022)
 - [September 2022](/09.2022)
+- [October 2022](/10.2022)
 
 
 # Days before the war
