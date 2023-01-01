@@ -13,6 +13,8 @@
   - [October 2022](/10.2022)
   - [November 2022](/11.2022)
   - [December 2022](/12.2022)
+- 2023
+  -[January 2023](/01.2023)
 
 
 # Days before the war
