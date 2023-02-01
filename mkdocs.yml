@@ -2,3 +2,6 @@ site_name: Ukraine Russia War
 site_url: "https://pirocorp.github.io/Ukraine-Russia-War/"
 repo_url: "https://github.com/pirocorp/Ukraine-Russia-War"
 docs_dir: "/"
+watch:
+- 2022
+- 2023
