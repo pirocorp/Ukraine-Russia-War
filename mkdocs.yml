@@ -1,7 +1,19 @@
-site_name: Ukraine Russia War
+site_name: "Ukraine Russia War"
 site_url: "https://pirocorp.github.io/Ukraine-Russia-War/"
 repo_url: "https://github.com/pirocorp/Ukraine-Russia-War"
+site_description: "Documenting the war from Ukrainian perspective with attention to the russian equipment losses"
+site_author: "Piroman"
 docs_dir: "/"
 watch:
 - 2022
 - 2023
+theme:
+    name: readthedocs
+    locale: en
+    custom_dir: theme/
+    static_templates:
+        - sitemap.html
+    include_sidebar: false
+nav:
+    - 2022: '2022'
+    - 2023: '2023'
