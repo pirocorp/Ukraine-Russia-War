@@ -1,0 +1,6 @@
+#Jekyll configuration
+
+name: Ukraine Russia War
+description: Documenting the war from Ukrainian perspective with attention to the russian equipment losses
+url: "https://pirocorp.github.io/Ukraine-Russia-War/"
+markdown: kramdown
