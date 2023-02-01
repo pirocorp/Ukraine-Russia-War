@@ -7,10 +7,11 @@ docs_dir: "/"
 watch:
 - 2022
 - 2023
+nav:
+    - 2022: "2022/README.md"
+    - 2023: "2023/README.md"
 theme:
     name: readthedocs
-    locale: en
+    #locale: en
+    #nav_style: dark
     #include_sidebar: false
-nav:
-    - 2022: '2022'
-    - 2023: '2023'
