@@ -35,9 +35,19 @@
 
 ## Fake Incursian in Russia
 
-The have now released "helmet cam" footage for the claimed incursion by Ukrainian troops. Because if you are going sneak into Russia to perform sabotage, you of course bring a helmet cam and BTRs.
+<details open="" class="details-reset border rounded-2">
+  <summary class="px-3 py-2 border-bottom">
+    <svg aria-hidden="true" viewBox="0 0 16 16" version="1.1" data-view-component="true" height="16" width="16" class="octicon octicon-device-camera-video">
+        <path fill-rule="evenodd" d="..."></path>
+    </svg>
+    <span aria-label="Video description dotnet-evergreen.mp4" class="m-1">They have now released "helmet cam" footage for the claimed incursion by Ukrainian troops. Because if you are going sneak into Russia to perform sabotage, you of course bring a helmet cam and BTRs.</span>
+    <span class="dropdown-caret"></span>
+  </summary>
 
-https://user-images.githubusercontent.com/34960418/160011562-175ed1a7-4f3d-4e5f-91bb-a8d865858522.mp4
+  <video src="https://user-images.githubusercontent.com/34960418/160011562-175ed1a7-4f3d-4e5f-91bb-a8d865858522.mp4" data-canonical-src="https://user-images.githubusercontent.com/34960418/160011562-175ed1a7-4f3d-4e5f-91bb-a8d865858522.mp4" controls="controls" muted="muted" class="d-block rounded-bottom-2 width-fit" style="max-height:640px;">
+
+  </video>
+</details>
 
 
 ## Forward NATO base in Poland
