@@ -22,7 +22,8 @@ nav:
         - "December 2022": "/2022/12.2022"
     - "2023": "/2023/"
 theme:
-    name: readthedocs
+    name: mkdocs
+    nav_style: dark
     #locale: en
     #nav_style: dark
-    #include_sidebar: false
+    include_sidebar: true
