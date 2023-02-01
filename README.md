@@ -15,6 +15,7 @@
   - [December 2022](2022/12.2022)
 - [2023](2023)
   - [January 2023](2023/01.2023)
+  - [February 2023](2023/02.2023)
 
 
 # Days before the war
@@ -98,7 +99,9 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 
 «Добро пожаловать в ад, вы здесь умрете как паршивые псы. Русских солдат не ждут в Украине! Здесь вас ждут не с цветами, а с Javelin. Если вы придете в Украину, вы отсюда никогда не выйдете!», - народный депутат Украины от «Евросолидарности» Алексей Гончаренко красноречиво объяснил, почему в Украине не ждут российских солдат.
 
-https://user-images.githubusercontent.com/34960418/155382012-4f4a8e99-ba60-436e-9588-c7c2cad98ce7.mp4
+<video 
+  src="https://user-images.githubusercontent.com/34960418/155382012-4f4a8e99-ba60-436e-9588-c7c2cad98ce7.mp4" controls="controls" style="max-width: 730px;">
+</video>
 
 
 ## Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine
@@ -125,4 +128,7 @@ Location of invading Russian forces. Border post cameras have been disabled Crim
 ![image](https://user-images.githubusercontent.com/34960418/155419693-b577f668-918f-4e4c-883d-e64dd9d1dbb1.png)
 
 
-https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-bf7c-491ca5c22fb1.mp4
+<video 
+  src="https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-bf7c-491ca5c22fb1.mp4" controls="controls" style="max-width: 730px;">
+</video>
+
