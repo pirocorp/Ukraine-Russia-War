@@ -10,10 +10,7 @@ watch:
 theme:
     name: readthedocs
     locale: en
-    custom_dir: theme/
-    static_templates:
-        - sitemap.html
-    include_sidebar: false
+    #include_sidebar: false
 nav:
     - 2022: '2022'
     - 2023: '2023'
