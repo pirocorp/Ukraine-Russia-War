@@ -26,8 +26,8 @@
         <span id="logo"></span>
 
         <a href="{{ relative_url }}" class="button fork"><strong>Home</strong></a>
-		<a href="{{ relative_url | append: '/2022' }}" class="button"><strong>2022</strong></a>
-		<a href="{{ relative_url | append: '/2023' }}" class="button"><strong>2023</strong></a>
+		<a href="{{ relative_url | append: '/2022' | relative_url }}" class="button"><strong>2022</strong></a>
+		<a href="{{ relative_url | append: '/2023' | relative_url }}" class="button"><strong>2023</strong></a>
         {% if site.show_downloads %}
           <div class="downloads">
             <span>Downloads:</span>
