@@ -27,19 +27,19 @@
 
 # 21.20.2022
 
-## Satellite imagery shows Russian ground forces dispersing to positions close to the Ukraine border.
+Satellite imagery shows Russian ground forces dispersing to positions close to the Ukraine border.
 
 ![image](https://user-images.githubusercontent.com/34960418/154871560-ed7f6e32-af14-4f69-bee0-37fa14eb3108.png)
 
 
-## Kuznetsi in 🇺🇦 47°16'25.48"N 38°19'56.38"E.
+Kuznetsi in 🇺🇦 47°16'25.48"N 38°19'56.38"E.
 
 "Post" maybe here at Kuznetsi in 🇺🇦 47°16'25.48"N 38°19'56.38"E. 2014 🇷🇺 army unblocked this remote crossing & it's used by 🇷🇺 army to enter/exit Ukraine. Nearest 🇺🇦 positions approx. 40km away. Red: post. Blue: dark earth track. Orange: 2 white tank traps moved after unblocking
 
 ![image](https://user-images.githubusercontent.com/34960418/154959514-ab760106-1081-4e0f-9a87-3ce14bf1bd22.png)
 
 
-## Fake Incursian in Russia
+Fake Incursian in Russia
 
 <details open="" class="details-reset border rounded-2">
   <summary class="px-3 py-2 border-bottom">
@@ -56,12 +56,12 @@
 </details>
 
 
-## Forward NATO base in Poland
+Forward NATO base in Poland
 
 ![image](https://user-images.githubusercontent.com/34960418/155025466-b3f7cce1-6ad6-47c2-a1f3-20acc56cfbb2.png)
 
 
-## Putin has ordered Russian troops into Ukraine.
+Putin has ordered Russian troops into Ukraine.
 
 The decrees on recognizing the Donetsk and Luhansk People’s Republics order the Russian armed forces to go into separatist territory on peacekeeping missions.
 
@@ -72,19 +72,19 @@ The decrees on recognizing the Donetsk and Luhansk People’s Republics order th
 
 # 22.02.2022
 
-## Tupolev Tu-154M, Russian Navy landing at Yeysk. Mariupol is directly across the sea. 
+Tupolev Tu-154M, Russian Navy landing at Yeysk. Mariupol is directly across the sea. 
 
 ![image](https://user-images.githubusercontent.com/34960418/155035690-862febdc-1c5c-4117-be4d-8ebe17d860d9.png)
 
 
-## Key railway / road junctions near Kyiv
+Key railway / road junctions near Kyiv
 
 I fear that we will soon hear more about the small cities of Ovruch, Korosten, Malyn, Ivankiv and Chernihiv in #Ukraine. As key railway / road junctions near Kyiv, they are bound to be in harm's way of Russia's 35th, 36th and 41st Combined Arms Armies (CAAs), based in Belarus.
 
 ![image](https://user-images.githubusercontent.com/34960418/155044070-8a39eb95-23c3-4415-b6da-691725b52ead.png)
 
 
-## Russian messaging over DNR/LNR
+Russian messaging over DNR/LNR
 
 Russian messaging over whether DNR/LNR recognised in current or “desired” borders has been all over the place today. Maybe strategic ambiguity, maybe Putin just didn’t tell anyone else yet what he plans. 
 
@@ -92,7 +92,7 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 ![image](https://user-images.githubusercontent.com/34960418/155145053-9f7ba740-d4ec-4c64-9a94-7e34ca4e938a.png)
 
 
-# US Aircraft carrier
+US Aircraft carrier
 
 ![image](https://user-images.githubusercontent.com/34960418/155243200-86961e17-d50e-4369-81bf-fab947e596eb.png)
 
@@ -100,7 +100,7 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 
 # 23.02.2022
 
-## Welcome to hell
+Welcome to hell
 
 «Добро пожаловать в ад, вы здесь умрете как паршивые псы. Русских солдат не ждут в Украине! Здесь вас ждут не с цветами, а с Javelin. Если вы придете в Украину, вы отсюда никогда не выйдете!», - народный депутат Украины от «Евросолидарности» Алексей Гончаренко красноречиво объяснил, почему в Украине не ждут российских солдат.
 
@@ -109,21 +109,21 @@ Russian messaging over whether DNR/LNR recognised in current or “desired” bo
 </video>
 
 
-## Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine
+Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine
 
 It looks like Russian troops are transporting an old Su-24 aircraft towards the border with Ukraine (🇺🇦) in Belarus (🇧🇾). The Belarusian Air Force doesn’t use Su-24’s, but the Ukrainians do. Will this aircraft be used for a fake news story about an attack? 
 
 ![image](https://user-images.githubusercontent.com/34960418/155388586-394091e4-205d-4212-a377-3dcc0f586cd8.png)
 
 
-## Urgent burial of corpses in peacetime and wartime
+Urgent burial of corpses in peacetime and wartime
 
 Meanwhile in Russia: the national standard for "Urgent burial of corpses in peacetime and wartime" is reportedly being introduced by the government. [Mass Graves.](https://en.newizv.ru/article/general/13-12-2021/grave-in-law-state-adopts-national-standard-for-mass-graves?fbclid=IwAR3hC23laheVX16evjBbaw1q0msJF25oxEFU_bk8btW1f2VsZlhebHNpSHQ)
 
 ![image](https://user-images.githubusercontent.com/34960418/155390059-1c8a860b-5ad4-4677-bee8-8e8412ef1875.png)
 
 
-## Location of invading Russian forces
+Location of invading Russian forces
 
 Location of invading Russian forces. Border post cameras have been disabled Crimea.
 
