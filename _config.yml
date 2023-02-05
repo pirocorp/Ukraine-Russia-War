@@ -15,5 +15,5 @@ plugins:
 - jekyll-remote-theme # add this line to the plugins list if you already have one
 github:
   home: "/"
-  2022: "/2022"
-  2023: "/2023"
+  year_one: "/2022"
+  year_two: "/2023"
