@@ -11,6 +11,15 @@ div#banner {
    margin-right: -530px;
 }
 
+p {
+    margin: 40px 0;
+    font-size: initial;
+}
+
+p:after {
+
+}
+
 @media print, screen and (max-width: 1060px){
 	section {
 		border: 1px solid #e5e5e5;
