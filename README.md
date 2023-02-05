@@ -4,7 +4,7 @@
 
 [![pages-build-deployment](https://github.com/pirocorp/Ukraine-Russia-War/actions/workflows/pages/pages-build-deployment/badge.svg?branch=main)](https://github.com/pirocorp/Ukraine-Russia-War/actions/workflows/pages/pages-build-deployment)
 
- - [2022](2022)
+- [2022](2022)
   - [February 2022](2022/02.2022)
   - [March 2022](2022/03.2022)
   - [April 2022](2022/04.2022)
