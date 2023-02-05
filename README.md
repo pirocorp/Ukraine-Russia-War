@@ -1,7 +1,10 @@
+{% comment %} 
 
 # Jump to WAR days
 
-- [2022](2022)
+[![pages-build-deployment](https://github.com/pirocorp/Ukraine-Russia-War/actions/workflows/pages/pages-build-deployment/badge.svg?branch=main)](https://github.com/pirocorp/Ukraine-Russia-War/actions/workflows/pages/pages-build-deployment)
+
+ - [2022](2022)
   - [February 2022](2022/02.2022)
   - [March 2022](2022/03.2022)
   - [April 2022](2022/04.2022)
@@ -16,6 +19,8 @@
 - [2023](2023)
   - [January 2023](2023/01.2023)
   - [February 2023](2023/02.2023)
+
+{% endcomment %}
 
 
 # Days before the war
@@ -132,4 +137,3 @@ Location of invading Russian forces. Border post cameras have been disabled Crim
   src="https://user-images.githubusercontent.com/34960418/155419463-d441dcf1-f7b3-40f8-bf7c-491ca5c22fb1.mp4" controls="controls" style="max-width: 730px;">
 </video>
 
-[![pages-build-deployment](https://github.com/pirocorp/Ukraine-Russia-War/actions/workflows/pages/pages-build-deployment/badge.svg?branch=main)](https://github.com/pirocorp/Ukraine-Russia-War/actions/workflows/pages/pages-build-deployment)
