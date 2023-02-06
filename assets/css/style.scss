@@ -20,6 +20,16 @@ p:after {
 
 }
 
+h2 {	
+	margin: 40px 0;
+    font-size: xx-large;
+}
+
+h3 {
+	margin: 40px 0;
+    font-size: x-large;
+}
+
 @media print, screen and (max-width: 1060px){
 	section {
 		border: 1px solid #e5e5e5;
