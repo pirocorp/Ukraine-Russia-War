@@ -50,7 +50,7 @@ Fake Incursian in Russia
     <span class="dropdown-caret"></span>
   </summary>
 
-  <video src="https://user-images.githubusercontent.com/34960418/160011562-175ed1a7-4f3d-4e5f-91bb-a8d865858522.mp4" data-canonical-src="https://user-images.githubusercontent.com/34960418/160011562-175ed1a7-4f3d-4e5f-91bb-a8d865858522.mp4" controls="controls" muted="muted" class="d-block rounded-bottom-2 width-fit" style="max-height:640px;">
+  <video src="https://user-images.githubusercontent.com/34960418/160011562-175ed1a7-4f3d-4e5f-91bb-a8d865858522.mp4" data-canonical-src="https://user-images.githubusercontent.com/34960418/160011562-175ed1a7-4f3d-4e5f-91bb-a8d865858522.mp4" controls="controls" muted="muted" class="d-block rounded-bottom-2 width-fit" style="max-width: 730px;">
 
   </video>
 </details>
