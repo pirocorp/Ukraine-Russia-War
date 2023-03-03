@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/34960418/222795351-e7d2820f-c5ef-4156-8701-a5b396d0e3a7.png)
+![image](https://user-images.githubusercontent.com/34960418/222817843-c2d3a5ee-3d49-4e02-9cc4-37e0af66aca3.png)
 
 ![image](https://user-images.githubusercontent.com/34960418/222814417-9d71e666-0690-4099-a0bf-3f21f5b1b23b.png)
 
@@ -112,10 +112,82 @@ Russian BMP-3 drove into a minefield
 
 https://user-images.githubusercontent.com/34960418/222808351-9be488b8-047d-46d4-a610-12f4e339b48a.mp4
 
+The 128th TD brigade and military intelligence of Ukraine are hunting for a Russian AFV.
+
+https://user-images.githubusercontent.com/34960418/222825672-a75dcf61-0c4c-4f06-b801-45287b2aadf2.mp4
+
+Drone of the 114th TD battalion of the 113th TD brigade attacks the Russians.
+
+https://user-images.githubusercontent.com/34960418/222827671-30f572f8-c01c-43b7-aaf4-ddee09cf1e19.mp4
+
+92 OMBR shows its hospitality to the Russians
+
+https://user-images.githubusercontent.com/34960418/222830977-351620ca-c18b-4337-98bb-6824fd799252.mp4
+
+Black Cossacks of the 72nd Motorized Brigade bring our victory closer
+
+https://user-images.githubusercontent.com/34960418/222830755-30b26df3-c23e-4781-8ca7-1d01873cdad8.mp4
+
+Drone 10 OGSHBr "Edelweiss" neutralized BC orcs
+
+https://user-images.githubusercontent.com/34960418/222831119-67fed705-f2b7-4680-b452-35df0bc684bf.mp4
+
+Drone operators of the motorized infantry battalion of the 53rd Motorized Brigade destroy Russian invaders
+
+https://user-images.githubusercontent.com/34960418/222832180-34604a84-7a6e-4f5d-8596-9ba756a45291.MP4
+
+Aerial reconnaissance of the 128 Troop brigade corrects artillery fire on Katsap positions
+
+https://user-images.githubusercontent.com/34960418/222832559-4b420779-c7f1-4e0e-9b97-3f73d1c996cd.mp4
+
+The 109th OGSHB of the 10th OGSHB "Edelweiss" destroys the orc BC
+
+https://user-images.githubusercontent.com/34960418/222832674-fe2f4649-bb04-435d-b2e8-ace1b745d58b.mp4
+
+An army of drones is a nightmare for orcs
+
+https://user-images.githubusercontent.com/34960418/222837967-a69a5830-69ee-46c3-b697-1bf9e4c3b098.MP4
+
+
+
+
+
 
 ### No Comment
 
 https://user-images.githubusercontent.com/34960418/222811951-9c2f4e4e-b8e2-45ae-87f3-5a50abf6bdd9.mp4
+
+https://user-images.githubusercontent.com/34960418/222821470-d46e72c1-df32-437f-a316-b9394a33bbeb.mp4
+
+https://user-images.githubusercontent.com/34960418/222822932-460bed3d-1cd0-433d-b945-c8ef4b25f711.mp4
+
+https://user-images.githubusercontent.com/34960418/222824577-2e3cfe14-1d0e-417b-86a2-4a91df2fa6be.mp4
+
+https://user-images.githubusercontent.com/34960418/222824865-e6fc80f0-b4ad-4e6e-9100-f453256c16bd.mp4
+
+https://user-images.githubusercontent.com/34960418/222828244-c4a5c813-32e0-4f2f-917e-ccc05f0cafc9.mp4
+
+https://user-images.githubusercontent.com/34960418/222831736-5dcae9c7-ab5b-4cd1-a93e-6fc5f596576e.MP4
+
+https://user-images.githubusercontent.com/34960418/222833511-46cdcb68-c1a8-4505-86a1-2081d1e9e7a5.mp4
+
+https://user-images.githubusercontent.com/34960418/222833628-68ed95ba-d09a-4425-acd9-748a09b3dbd7.MP4
+
+https://user-images.githubusercontent.com/34960418/222836586-73f1721e-1b15-4657-b7db-62e9a1c45c02.mp4
+
+https://user-images.githubusercontent.com/34960418/222836764-a10cfc54-d011-411c-981d-bb3cd3534083.mp4
+
+
+
+
+## Avdiivka
+
+https://user-images.githubusercontent.com/34960418/222836373-3b8d3e37-edf6-4d4f-9b08-c66e17afe5ab.mp4
+
+
+
+
+
 
 
 
@@ -194,6 +266,26 @@ Drone footage of Bakhmut showing the scale of the destruction wrought upon the c
 
 https://user-images.githubusercontent.com/34960418/222807170-b64f55f4-a3a3-4654-bd0e-1dd00d47631b.mp4
 
+30th Brigade destroys the Ork stronghold near Bakhmut
+
+https://user-images.githubusercontent.com/34960418/222831345-c354b70e-6c1d-4a4c-8cfb-a898a95d8431.mp4
+
+The result of the work of the Ukrainian MTR, Bakhmutsky straight
+
+https://user-images.githubusercontent.com/34960418/222833997-8885f66b-c7ab-4010-955c-f1c1902cfa4a.MP4
+
+Operators of drones "BUAR" of the 110th Specialized Brigade ruled the burial of Russians right in the cemetery.
+
+https://user-images.githubusercontent.com/34960418/222834884-32e4678e-d9fb-4401-a7d8-7922a9948625.MP4
+
+Bakhmut, they made mincemeat out of the assault group of orcs
+
+https://user-images.githubusercontent.com/34960418/222837655-04eac53a-6608-4bb4-8f3f-77b437137364.mp4
+
+
+
+
+
 
 ## Donetsk
 
@@ -205,6 +297,12 @@ The Russian IFVs attack was stopped by the fire of Ukrainian tanks, artillery an
 
 https://user-images.githubusercontent.com/34960418/222813602-bb7e327c-192a-4c63-b015-78eaa0d97ac6.mp4
 
+
+## Kherson
+
+Excalibur destroys the Russian artillery tractor KamAZ "Bear" in the area of ​​the settlement. Nechaevo in the Kherson region.
+
+https://user-images.githubusercontent.com/34960418/222830136-7072c01c-1bf9-4d4f-9dca-bc936dddbedd.MP4
 
 
 
@@ -226,6 +324,11 @@ https://user-images.githubusercontent.com/34960418/222814935-297a0de4-a12b-4046-
 Ukrainian gunners destroying a Russian tank hidden in a forest reportedly in the Kupiansk direction. The artillery fire is adjusted using a drone.
 
 https://user-images.githubusercontent.com/34960418/222813035-e7a30da6-1738-42fd-beaf-d121f23380bc.mp4
+
+Aerial reconnaissance footage paired with artillery near Kupyansk
+
+https://user-images.githubusercontent.com/34960418/222831504-f72c33f4-0881-48ed-bd08-4f41f92122d3.MP4
+
 
 
 
@@ -270,6 +373,10 @@ Destroyed Russian 152mm “Giatsint-B”
 https://user-images.githubusercontent.com/34960418/222788941-5d882693-50e4-4d9c-b5d8-107cff2ae9b3.mp4
 
 https://user-images.githubusercontent.com/34960418/222789560-da5c7fea-cd0c-4fd0-85e5-84c2fa6915e1.mp4
+
+Zaporizhzhia's separate TrO brigade has a rich harvest of enemy souls.
+
+https://user-images.githubusercontent.com/34960418/222835528-d48e5db7-4558-4520-b1a3-72739b30f07f.mp4
 
 
 
